@@ -1,0 +1,1 @@
+Okay, So I'm not completely satisfied with "Deal" as Pete's last line either.  "That's the compromise" feels slightly unnatural, almost like we're trying too hard to explain the joke.  I like "End of discussion!" because it's so emotional and colloquial, I think everyone will understand it as a sign that they have just missed a heated debate.  I also like bolding "and".

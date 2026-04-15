@@ -1,0 +1,1 @@
+Hi Aaron!  I hope you're having a great week so far.  Aaron G hasn't passed the new project off to me yet.  I've followed up with him, but for now I have some time that I could spend on Certell if there are any issues that you want me to tackle.  Otherwise, I will continue on Schoolahoop for the time being.  Let me know, thanks!

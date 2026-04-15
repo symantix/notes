@@ -1,0 +1,3 @@
+I’m beginning to think that I do have pointless panic attacks frequently each day.  They are very mild, just some sort of brief surge in the back of my throat, so I’ve never thought of them as panic attacks.  But I do start regulating my breathing so that I don’t get too upset.  And they are pointless, like how am I going to get this task done on time, or how am I going to explain this down time that I’m about to have, while I draw or sing.  If I could learn that these things are nothing to panic about, at all, I think life would be significantly better.
+
+If I could learn to really enjoy myself throughout the week, I think my body would start trusting life more, and I would sleep better on the weekends.

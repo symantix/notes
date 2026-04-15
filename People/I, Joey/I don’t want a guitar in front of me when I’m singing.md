@@ -1,0 +1,3 @@
+I don’t want a guitar in front of me when I’m singing.  I don’t want an instrument whose key visual component faces away from we. 
+
+The piano is the instrument of my childhood.  I feel very natural sitting behind it.  I love having my hands and chest free when I’m not playing, and I love having a good excuse to sit comfortably behind a mic, and I love that doing so feels appropriate and natural, and encourages a relaxed audience atmosphere.

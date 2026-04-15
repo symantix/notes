@@ -1,0 +1,1 @@
+￼At some point, Tiq gets angry at Tiber for some reason. And then in the black & whites, we have the short about play fighting with bats. “It’s a soft metal”￼

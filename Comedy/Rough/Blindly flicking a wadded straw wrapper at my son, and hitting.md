@@ -1,0 +1,1 @@
+Blindly flicking a wadded straw wrapper at my son, and hitting him in the eye, at the sushi joint.  Before this, he had gently discarded this trash by placing it on my arm.  So I decided to roll the dice.  I know that a father shouldn’t laugh at such tragedy.  That’s all I have to say.

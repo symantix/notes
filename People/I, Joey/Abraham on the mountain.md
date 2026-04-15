@@ -1,0 +1,1 @@
+What I’ve been going through with my mom and friend, reminds me of Abraham on the mountain, with the knife raised to his son.

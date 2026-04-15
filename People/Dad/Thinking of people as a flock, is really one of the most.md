@@ -1,0 +1,1 @@
+Thinking of people as a flock, is really one of the most brilliant leadership mechanisms I've ever heard of.

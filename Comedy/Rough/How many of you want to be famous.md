@@ -1,0 +1,1 @@
+How many of you want to be famous?  Some of your friends are looking at you right now going, of course they want to be famous.  And now you’re thinking about those people, going, why would they think that about me?

@@ -1,0 +1,1 @@
+An autistic girl. Sometimes she functions as an Oracle.  She’s a bit like Savannah from Gavin’s karate class.  Mostly quiet, sometimes innocently insensitive.

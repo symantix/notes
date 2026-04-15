@@ -1,0 +1,1 @@
+The time in Charlotte, when I got home early around Christmas, and parked the Jeep around the corner so you wouldn’t know, and made you throw all the groceries when you walked in by pretending to be a giant spider.

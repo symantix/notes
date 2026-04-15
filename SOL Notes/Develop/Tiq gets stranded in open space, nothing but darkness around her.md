@@ -1,0 +1,1 @@
+Tiq gets stranded in open space, nothing but darkness around her

@@ -1,0 +1,1 @@
+Small talk is a way of saying hello to people that you’ve already greeted before.  Hello gets old after a while, and begins to sound robotic and cold.  Small talk is something a bit more than hello, something to say, I still see you, and though we are different people, I still care enough to spend a moment.

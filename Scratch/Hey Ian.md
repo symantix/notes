@@ -1,0 +1,3 @@
+Hey Ian!  I'll keep my radar on for iOS devs, but don't know any off-hand.
+
+The Lincoln gig is still going well man.  I've thought a lot about you over the months, brother.  I want you to know that when you called me to tell me you were leaving Lincoln, I was at Sam's Club with my wife, I walked outside to take the call, and I was completely unprepared.  You and I have always walked a delicate line of professionalism, so I wasn't sure how much to push or pry, and erred on the side of none.  But I want you to know, that I wanted to know what happened.  Are you doing okay?  The last couple of times I asked, you didn't respond.  Please let me know if there's anything I can do

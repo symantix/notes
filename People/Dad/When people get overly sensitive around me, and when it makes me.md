@@ -1,0 +1,1 @@
+When people get overly sensitive around me, and when it makes me uncomfortable or tense, that means that I've now become overly sensitive toward them.  And why?  What am I afraid of?  This just means that I need to be a bit more sensitive about their feelings, or that I need to find a way to have fun with them, or that I simply need to ignore them.

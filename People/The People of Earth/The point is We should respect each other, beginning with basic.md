@@ -1,0 +1,1 @@
+The point is:  We should respect each other, beginning with basic decorum for everyone, and gratitude for our shared reality.  And where we disagree on reality, let us conti

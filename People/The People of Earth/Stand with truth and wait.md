@@ -1,0 +1,1 @@
+When you stand with truth, and no one  believes you, all you have to do, is wait.

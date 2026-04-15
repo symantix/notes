@@ -1,0 +1,13 @@
+I want you all to know that I don't hold your political views against you.  I know that you believe that you had good reasons to vote for Kamala, and I don't plan on harassing you about it.  The only reason I spoke up the other day is because someone opened a political discussion in our group.  My positions are not a secret, and you all have access to my Facebook posts.  So it seemed obvious that, not only were you aware of my position, but you had likely discussed it amongst yourselves.  And since you started a political discussion in our group, I could only conclude that you were also welcoming the opportunity to hear from me.  After all, what would you have thought of me if, after making my viewpoint public, I had just kept my mouth shut around my friends?
+
+That said, though I may send you a thought from time to time, as you have done, I don't plan to flood our channel with ideas that may cause friction and stress.
+
+But I would like to ask you all an important question.
+
+Prior to last week's discussion, I couldn't help but notice a shift in atmosphere in our group thread in the months that lead up to it.  Specifically, prior to 2025, every time I would post some work progress, I was always met with plenty of feedback.  But in the recent months, my progress posts were met with total silence.
+
+Last week, John made a joke about blocking me.  I dismissed it, because we just have too much history for that to be taken seriously, and because I assumed that diverse political discussion is what was desired, since you must've already knew where I stood.  But there is also this idea that is growing among democrats, that if someone voted for Trump, if someone is even a republican or maga, that you should unfriend them, disown them, cast them from your family, and most importantly, stop listening to them.  I took it on faith that you all agreed with me, that this idea is really harmful, and that no matter how right we think we are, we still might be wrong.
+
+However, while I have learned to lean on our friendship, I can't help but take note of these recent red flags, and it compels me to ask:  Are we all still friends, or are you currently deciding if it's worth continuing?  Is there any seriousness to this threat to block me?  Do you still count yourself as part of GCS?  Sometime in the next couple of months, I'd like to sit down with you and go through what has been developed for SOL Episode 2.  Do you want to participate in this discussion?
+
+While I hope the answer is yes, of course, I prefer the truth, and I'm confident that's what you'll give me.  Thanks, and much love to you and yours, and I hope you had a great Fourth of July.

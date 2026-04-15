@@ -1,0 +1,1 @@
+The story about the neighbor lady who came to the door, complaining about kids in the ditch, throwing rocks at birds.  How aggressive she was.  How you listened for a couple of minutes.  How you began to speak, how she began to interrupt, how you nipped her in the bud, and then continued with kindness and cooperation.

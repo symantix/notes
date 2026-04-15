@@ -1,0 +1,3 @@
+- Added multithread option to speed up script my orders of magnitude
+- Added tracker
+- Added CPU cycles temporarily

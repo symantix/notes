@@ -1,0 +1,1 @@
+Without a doubt we all live in parallel universes, for surely we are each a universe unto ourselves.

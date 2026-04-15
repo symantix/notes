@@ -1,0 +1,1 @@
+Which would change a child’s life more:  to remember their parent not trusting them in a moment when they deserved to be trusted; or to remember their parent trusting them in a moment when they weren’t worthy?

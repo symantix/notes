@@ -1,0 +1,1 @@
+A character that is perhaps autistic, super withdrawn at the very least.  We later discover they know something.  Perhaps the location of something in a deep cave.

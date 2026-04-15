@@ -1,0 +1,1 @@
+A white kid that touches Kikay’s hair all the time.  “Somethings wrong with that dude.”

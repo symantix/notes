@@ -1,0 +1,3 @@
+Heroes come in all shapes and sizes.  You can recognize them by their deeds, doing good to others, rescuing those in peril, putting out fires, helping those in need.  You can also recognize them by their mask.  Especially if it’s a blue semigloss mask, that’s definitely a hero.  If it’s red with a matte finish, that’s a villain, you probably want to stay away from that one.  Green, mmm, iffy...
+
+Im just kidding.  You should never judge someone by the color of their mask.

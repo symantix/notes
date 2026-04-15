@@ -1,0 +1,1 @@
+The self-employed artist is asked to set aside all of the worries and cares of life, the stresses of each day, to let go of it all, and just dream for a few moments, explore the infinite universe of the imagination, free of every care that anchors us to the physical world.  This is no easy task for a person who, by nature and by culture, lives a life full of suffering.

@@ -1,0 +1,1 @@
+I love this journey that I’m on, toward peace.  Peace in my soul, peace in those around me.  Violence may one day come upon us all, but when it is over, we will keep walking toward peace.

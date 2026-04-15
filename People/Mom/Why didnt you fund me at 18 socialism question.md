@@ -1,0 +1,1 @@
+When I turned 18, why weren’t you willing to continue funding my life?  This isn’t a complaint, it’s a thought exercise about socialism.

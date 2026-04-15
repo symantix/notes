@@ -1,0 +1,1 @@
+A character who suffers from dimensia.  It’s a gift as much as a curse. Though they can’t remember who the people around them are, never develop a relationship, they are smart, and give an extremely fresh view of any situation. They don’t take anything around them for granted.

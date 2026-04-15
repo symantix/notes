@@ -1,0 +1,1 @@
+Lena said that there are friends of hers out west, who have seen the show, and are saying "why haven't I heard of this show"?

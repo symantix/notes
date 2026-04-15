@@ -1,0 +1,3 @@
+I remember a day. I don't remember all of the circumstances. But I was hell bent on recording a song, and I wanted privacy. You expressed frustration at being withheld free access to the studio, and I ended up feeling like I had overstepped my bounds. 
+
+I don't know of a way forward. This is sometimes what I need.  I currently need to start going through some deeply private vocal exercises.  They will be loud and strange, and there is no other place to do them.

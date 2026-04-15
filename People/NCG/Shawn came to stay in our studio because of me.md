@@ -1,0 +1,7 @@
+Shawn came to stay in our studio because of me.  Because of my advice, and because I was looking for someone capable who could fill in some of the roles I had stepped away from, he came to reside at the center of God’s heart.
+
+Looking back at that time, when I set so many responsibilities down, I see fully now that this was not the same as quitting a job.  It was more like walking away from a calling.  Although I’m still not convinced that the details of live studio work is for me, the big step back I took was very black and white, very two-dimensional thinking.  I could’ve stepped to the left or right, but in some ways it feels like I stepped completely off the path. 
+
+On the other hand, I felt that if I didn’t step back for at least a while, I would always feel drawn or pressured into roles that were adjacent to my true calling, at a place, my place for community building and gathering, a place like no other, where I should find the most fulfillment.  And so I could argue that I was stepping, not away, but back, so that I could see it all from a different perspective.
+
+Shawn’s arrival in our studio marks the darkest time in NCG history.  He threw us into chaos the moment he inserted himself, the moment we allowed it.  If God we’re of the Old Testament, it could be argued that it smited us for my sin, when I stepped away from my true path and turned to a world of lies propped up by money.  And were that so, would it smite me again when I shouted to the heavens, that it failed to understand me?

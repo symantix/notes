@@ -1,0 +1,3 @@
+Life is Not About New Things
+
+Don’t teach your children that.  I don’t care how rich or poor you are, life should never be about new things.  It should be about learning, and working, and playing, and loving.  Maybe even fighting.  But this is what ruins a child’s heart, to focus always on what is new, rather than diving deeply into what is cherished.  So let Christmas and Birthdays be as exuberant and generous as possible.  Let rewards come from hard work.  For the rest of the time, let us get to know what we already have.

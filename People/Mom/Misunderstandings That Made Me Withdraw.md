@@ -1,0 +1,10 @@
+There have been two moments in our adult relationship, in which you misunderstood me beyond all measure, got very upset with me as a result, and never completely accepted an alternative explanation outside of your own outside perception.  They both really caused me to withdrawal.
+
+The first was when I called you mommy dearest when you asked for reasonable updates to a cartoon that I had drawn of you.  To this day, I have never seen that movie, and the term carries no baggage in my mind.  You claimed that day that you accepted my explanation, but something was said later down the road that indicated that you remained frustrated by that moment.
+
+The second was when I growled at you on FaceTime when you kept interrupting me.  I have never, in my adult life, growled at someone out of anger.  Just ask my entire family.  Who does that?  I have gotten frustrated and growled as a joke.  I tried to turn a frustrating moment into a funny moment, and I failed.  That is all that happened from my end.  You walked away from that conversation calling me a liar.
+
+These moments taught me how little we even know each other anymore.  The difference is, unless I'm mistaken, I have always given you the benefit of the doubt.  I believe that you, having known me only as a child, and witnessing me lie, as all children do, have decided that a leopard never changes its spots.  This understanding leaves me in deep conflict at times, because I will always love you as my mother, but I don't normally allow myself to think much about someone with such a distorted view and poor opinion of me.  I don't have to wonder if your view is distorted, because I'm me, and I know the truth about my intent in both of those moments, and I witnessed completely lose your cool, so much so that your ego wouldn't allow for an alternative explanation.  The only thing I do wonder about, is whether you've ever come around to the possibility that you were wrong.
+
+Do you still maintain that your initial perspective on those moments must be the truth, or have you given room to the possibility that you may have brought some baggage of your own into those encounters?
+

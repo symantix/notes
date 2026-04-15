@@ -1,0 +1,1 @@
+I’m not going to be able to afford to put my kids through college.  This is a big reason why I’m pushing myself so effectively - not hard, just effectively - to figure out all of the arts that I love so much.  I want to show my kids that you don’t need a college degree to figure out how to do shit, and then to do that shit.

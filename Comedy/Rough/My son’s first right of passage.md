@@ -1,0 +1,1 @@
+My son’s first right of passage, when he had lice, and the combing was painful.  The coins, the medallion 

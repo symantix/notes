@@ -1,0 +1,5 @@
+When I was a kid, I believed that the way to find a great girl was to see who they were on the inside.  I followed this idealism into my twenties, and married a woman with this philosophy in mind.  Now I'm forty, and I realize that my childhood self was absolutely right, and that I married a great woman.  The problem is, my adult self, starting at the age of around 35, gave up a bit on life, and this is one of the things he stopped believing.   
+
+I never really lived, if what you mean by lived is slept around when I was single.  I have sometimes regretted that.  But tonight I wonder if I would've ever considered my wife, would've ever been open to a relationship with an overweight woman, if I had fed my sexual appetite in my youth.  
+
+But, can inner beauty translate into sexual attraction?  I'm beginning to think it might be possible.

@@ -1,0 +1,22 @@
+Product Pitch
+
+- Eel preservation 
+- Story about debate site you were invited to co-admin - Slide “debate”
+	- Description of software
+	- Limitations 
+	- Idea that it sparked 
+- Modern forums, slide
+    - Facebook
+    - Twitter
+    - Imgur
+    - Same forum software
+    - It’s the same thing, the opening text is just highlighted a lot more, organization is the same
+- No adequate substitute for public f2f debate exists online
+- Images, online debate, slide “present vs future”
+    - Past
+    - Present
+    - Future
+    - Broader vision
+- why Lincoln?
+- Liberty Webmaster
+- kialo

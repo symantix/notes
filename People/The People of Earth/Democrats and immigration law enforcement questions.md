@@ -1,0 +1,3 @@
+Why didn’t democrats change immigration law when they had the power to do so?  Many democrats, leadership and citizens, now violently oppose the very laws they agreed to and upheld for the past 50 years.  Since the agreed upon consequence of breaking immigration law is deportation, why is the trauma of the present situation being blamed on republican leadership, the law enforcers, and not democrat leadership, the law breakers?  Moreover, did democrat presidents actually deport less and cause less deportation trauma, or was the left wing media simply covering for them?
+
+![[Pasted image 20251103102632.png]]

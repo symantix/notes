@@ -1,0 +1,1 @@
+Comedy is truth. Truth is meaning. Meaning is reality. Reality is subjective. 

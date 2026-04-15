@@ -1,0 +1,1 @@
+I may not need an eternal messiah to save my soul, but many situations in our lives, big and small, require a messiah of some kind in order to move forward.  When the chief rabbi claimed that one must die to save all, its very unlikely that he was speaking of eternal salvation, at least not in his own opinion, for whatever that’s worth ;)  He may have been suffesting

@@ -1,0 +1,1 @@
+What if all cerebral forms of life were equal forms of consciousness, and these bodies and brains are simply the hardware that we have available to us, to explore this realm which some of us call “existence”?

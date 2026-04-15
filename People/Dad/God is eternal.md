@@ -1,0 +1,1 @@
+God is eternal.  He is our origin.  He is our evolution.  He is what we think we should become.  He is the ideal.  He is not the same yesterday, today, and forever.  He is who he was, and he will be who she will be.

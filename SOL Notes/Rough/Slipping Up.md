@@ -1,0 +1,3 @@
+Instead of “beaming up”, the kids slip up.  It’s a weird, graphic stretching and pulling apart.  It’s not painful, but super weird until you’re used to it.  You can see all the guts and poop and eyeballs and slime being pulled and stretched as it’s transformed into a subatomic stream.  Subspace travel is not at all as pretty as we had hoped.
+
+Eventually they figure out how to disassemble a little less grossly.

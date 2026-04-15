@@ -1,0 +1,1 @@
+Mailman approaches door.  There is a signed, written poorly in crayon, that says “beware of children”.  He stares at it for a moment, then yells “I’m not scared of you two troglodytes!”.  Some growling and eyeballs appear in a bush.

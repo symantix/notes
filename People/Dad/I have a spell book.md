@@ -1,0 +1,1 @@
+I have a spell book.  Some people call it a sketch book.  I spend days, even weeks, designing spells for my friends.  When I’m done, I cast my spell, and my friends are swept away to a land of imagination, arguably against their will.

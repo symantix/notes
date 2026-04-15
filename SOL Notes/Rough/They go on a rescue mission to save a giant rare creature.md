@@ -1,0 +1,1 @@
+They go on a rescue mission to save a giant rare creature.  Is it also in the maze?

@@ -1,0 +1,1 @@
+I wish that people, who my friends don't know, would stop making up lies about me, so that my friends would, once again, believe in me more than they do strangers.

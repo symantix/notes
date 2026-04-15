@@ -1,0 +1,1 @@
+You may not want to admit that you’re the kind of person who would end a friendship over politics, but why else would you think that you can win an argument with insult, belittlement, and disrespect?  And what sane person would remain friends with you afterward?

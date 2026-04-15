@@ -1,0 +1,14 @@
+If you suffer from intrusive thoughts, you should take the time to acknowledge some of the virtues of religion, where chants, meditation, and prayer abound.  
+
+Chants, among other benefits, help to build filters within the mind, by training the mind to flood itself with a single thought upon command.  If you’re not a religious person, your chant doesn’t have to be religious, but make sure it’s something that encourages you in a positive direction.  You can say it out loud, or only in your mind.  It could be a quote that inspires you, or it could be as simple as “take it easy”.  It could be a song if you wish, but the shorter the better.  Spend time each day repeating the chant in your mind.  You can chant while you work, or you can focus on it.  With practice, a chant can become a simple trigger phrase that can send your mind in a more positive direction whenever you need it.
+
+Prayer is a broad category, and includes both speaking and listening in the mind.  Speak to the creator of the universe, or speak to a parent or friend.  Anyone who has a positive influence in your life is a good place to focus the mind.  Or don’t speak at all, and spend time focusing on quieting your mind, and snuffing out any intrusive thought that distracts.  Listen beyond the noise, listen for the voice of your friend or your creator.  You’ll know it when you hear it.  Or focus on the silence beyond the noise, and allow your mind to work on building a silent place for you to retreat to in times of need.  
+
+And while you’re there, in the midst of prayer, take a moment to recall some things you’re grateful for, because gratitude brings strength to the mind.  And finally, if you wish, ask for something that you need.
+
+Meditation is a form of prayer, with an emphasis on breathing.  Learning to control your breath is immensely helpful in this process, and in all of life.
+
+These are not the only things that help with intrusive thoughts.  Reading quality literature with well-structured thought is very healthy for your own thought processes.  Socializing with people of great character helps to shape and reshape your thought life.  Lots of things are good for the mind, even addressing the thoughts directly, on your own time and terms.  But chants, prayers, and meditation, are great exercises for the mind, like lifting weights, or
+running on a treadmill.
+
+If you suffer from intrusive thoughts, your mind will fight this entire process at first.  Don’t expect too much of yourself, just take a step, and make a daily commitment.  Spend 5 minutes, then spend 10 next time, then longer and more often.  With time and practice, you will grow strong, and intrusive thoughts won’t stand a chance.

@@ -1,0 +1,3 @@
+/IMG_5238.jpeg
+
+The organic reach is twice as much as their most popular post that is not one of my illustrations, and the paid reach is 5 times as much as any other post.  The only other posts that come close are a couple of my other illustrations.  I hope that translates into job security lol, because they probably pay around 2k for each of these pieces.  I've been wondering if they think it's worth it.  It's nice to be able to quantify the results.  It made me nervous at first, what they were paying.  I wondered how it could last.  Then I reminded myself what Jim Davis and Bill Watterson likely got paid for each of their pieces.

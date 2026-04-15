@@ -1,0 +1,3 @@
+Voice Dictated
+
+You really must tell yourself positive thoughts. You really must say things like “you’re doing a great job“, or “don’t worry about it, you’re doing fine“, or “you look awesome today“. If you don’t tell yourself things like this all the time, something is going to fill that void in your head, that space that your brain has made for your own opinion about yourself. So if you don’t tell yourself nice nice things, what is left to fill that space? The truth is, we are all amazing, and we can all do much better tomorrow then we have done today. But if we hate ourselves, we will fall into the trap of doing a poor job at everything, Because we just don’t think that we can do any better.

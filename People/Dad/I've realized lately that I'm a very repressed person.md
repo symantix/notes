@@ -1,0 +1,1 @@
+I've realized lately that I'm a very repressed person.  That needs to stop.  People need to know how I feel.  They need to know when they are pushing me too far.  And that message needs to be very clear without being intentionally hurtful. Beyond that, if they're feelings are hurt, I'm happy to help them move past it, but I'm not going to apologize.

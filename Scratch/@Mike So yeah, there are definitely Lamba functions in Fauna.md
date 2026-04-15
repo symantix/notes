@@ -1,0 +1,1 @@
+@Mike So I forgot, there are definitely Lamba functions in Fauna.  I've setup a couple of simple ones before, so I'm not sure what I was thinking earlier.  However, I haven't had an opportunity to explore them very deeply yet.  I'm going to keep digging into this.

@@ -1,0 +1,1 @@
+Seems like the tree of the knowledge of right and wrong, might be better understood as the tree of the *concept* of right and wrong.  In other words, life was easy until we all started fighting over our ideas of what right and wrong is.  Then the order of things kicked us out of this garden, this place where all was at peace with itself.

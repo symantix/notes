@@ -1,0 +1,1 @@
+Sliver of Light, a tale simple and sweet enough for children, with ancient and timeless meaning and depth.  A tale for the next generation, discussed by the whole tribe.

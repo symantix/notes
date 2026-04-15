@@ -1,0 +1,1 @@
+You just have to laugh to keep from crying.  This is what I tell people that get punched in the stomach.

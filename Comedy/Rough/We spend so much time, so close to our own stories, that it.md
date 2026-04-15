@@ -1,0 +1,1 @@
+We spend so much time, so close to our own stories, that it makes it almost impossible to realize just how fucking astounding our own stories really are, and how very much other people would like to hear about them.  Happy or sad, scary or funny, there’s always someone out there, waiting to hear a story, and realize that they are not alone.

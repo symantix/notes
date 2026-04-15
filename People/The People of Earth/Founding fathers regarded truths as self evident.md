@@ -1,0 +1,1 @@
+The founding fathers never said that any truths were self evident, they simply said that they regarded certain truths to be so.

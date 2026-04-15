@@ -1,0 +1,1 @@
+Are you ever standing in front of a microwave, waiting for your food, and then you just...take a small step back?  Like, I know the radiation is shielded, but are we sure that none of the microwaves are leaking out of this $50 appliance?

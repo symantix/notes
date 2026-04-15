@@ -1,0 +1,1 @@
+Emotional health and memory are directly related.  That people with good emotional health have better memory, and the people who have deadened themselves to life, are simply letting life slip away unnoticed.

@@ -1,0 +1,3 @@
+If the government continues to spend more than it takes in, somebody will eventually have to pay the price, and that will be our children and grandchildren.  The more that our government does this, the higher our taxes will get, until we are all wage slaves.  This will be the death of innovation and ingenuity, and the ultimate demise of our country.  
+
+Many people want this outcome, so beware when you debate this point, of those with an agenda that may not favor a strong country.

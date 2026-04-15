@@ -1,0 +1,1 @@
+Tiq goes through a scene, maybe a bit abstract, where her mom is dying, then wakes up aboard the ship in space, as if in a nightmare.  This casts doubt on what is real, the fact that her mom is dying, or the fact that they are exploring the universe, and this is just a memory.  This scene should happen, of course, after the kids have launched into space.

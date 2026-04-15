@@ -1,0 +1,1 @@
+When people speak to you, how many of them do you think are implementing training and how often?

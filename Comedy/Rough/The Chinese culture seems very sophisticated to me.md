@@ -1,0 +1,1 @@
+The Chinese culture seems very sophisticated to me.  But they didn’t beat us on the whole head-shaped hat thing.  They got that triangle, that wide cone thing going on.  What, you can’t make a head-shaped hat?  Primitives. 

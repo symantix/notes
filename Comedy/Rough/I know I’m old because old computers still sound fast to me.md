@@ -1,0 +1,1 @@
+I know I’m old because old computers still sound fast to me.  Oh, it’s a core duo?  Wow.  Ooh, a pentium for only $2?  That’s a steal.

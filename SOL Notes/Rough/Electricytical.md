@@ -1,0 +1,5 @@
+Electricytical 
+Electritocracy
+Electronicity
+Electricyclical
+Electyptical 

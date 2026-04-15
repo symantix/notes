@@ -1,0 +1,1 @@
+Years ago my doctor told to shower less because I was an office worker.  Now I get more exercise.  And I’m finally realizing that life isn’t the same as it was, and with all this exercise, I swear more than I once did.  So I’ve starts thinking, maybe I need to start exercising less.  That many showers is a huge pain in the butt.

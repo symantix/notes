@@ -1,0 +1,3 @@
+When I was a young boy learning to ride a bike, at some point I figured out that I had more balance when I looked ahead a bit.  Not too far, focusing on the horizon would cause me to lose site of oncoming obstacles; and not too close, or my steering corrections would become exaggerated as I tried to react to the terrain that was passing under me at a split-second speed.  By keeping my focus 10-20 yards in front of me, it allowed the feel of motion and the subtle tilt of the terrain to give me an instinctual sense of reflex, almost like a gyroscope or a compass, while also giving myself a few seconds of response time for any approaching obstacles.
+
+#AAA 

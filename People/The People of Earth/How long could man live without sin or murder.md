@@ -1,0 +1,1 @@
+There’s no telling how long a man could live if he didn’t sin, and he wasn’t murdered.

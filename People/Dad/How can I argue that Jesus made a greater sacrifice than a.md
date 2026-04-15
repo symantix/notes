@@ -1,0 +1,1 @@
+How can I argue that Jesus made a greater sacrifice than a soldier, or a mother?  Is it because his sacrifice saved the whole world?  That’s like arguing that he just has better genes.  Even Jesus himself would laugh at this notion.  Remember when he told the story of the little old lady who gave two small coins at the temple, all that she had, the money that she needed for food?

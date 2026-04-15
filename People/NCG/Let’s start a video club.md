@@ -1,0 +1,1 @@
+Let’s start a video club.  Announce it tomorrow.

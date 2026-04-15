@@ -1,0 +1,1 @@
+When I started dating Monica, I could've held her up to the standards of popular culture.  Instead, I held her to the standard of the women whom I respected the most.  My mother.  My main art teacher throughout the last five years of my schooling.  And others.  These women were not ...(incomplete)

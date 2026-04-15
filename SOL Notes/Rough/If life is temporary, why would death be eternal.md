@@ -1,0 +1,1 @@
+If life is temporary, why would death be eternal?

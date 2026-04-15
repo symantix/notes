@@ -1,0 +1,1 @@
+We need a prankster, and the pranks need to be funny.  We'll probably have a few pranks played between teams between episodes 3-5, but this is just a war.  We need a character that loves to play jokes on people.  Maybe.

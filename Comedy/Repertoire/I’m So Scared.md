@@ -1,0 +1,3 @@
+I’m So Scared
+
+Just before my son went out into our dark back yard one night, I explained to him how an animal's behavior around us is often dictated by our own behavior, concluding that our own safety often hangs on how much fear we show, and what is going on in and outside of the mind.  He said okay, then as he went into the darkness, I heard him whisper, oh god I'm so scared...

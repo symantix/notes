@@ -1,0 +1,3 @@
+Sex is for building families.  If you don’t believe that, be sure to always use protection, tie your tubes, or get the V.  An unwanted child will destroy your life.  You will hate it, it will hate you in return, and a cycle of destruction will spiral through future generations of people who don’t have a clue how wonderful a family is supposed to be.  This leaves you with the horrible choice of destroying the child’s life quickly, or slowly.
+
+Sex is for building families.  Pleasure is the side effect.  Treat it any other way, and your dancing with multi-generational death.

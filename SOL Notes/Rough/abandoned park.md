@@ -1,0 +1,1 @@
+An abandoned park (maybe playground, but more  creek, bridge, curated forest area.

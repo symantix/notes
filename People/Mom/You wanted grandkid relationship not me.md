@@ -1,0 +1,3 @@
+I remember a day, many years ago, when you called me.  We had disagreed about something, I can't remember what.  What I do remember is that you told me that it wasn't worth it, and you wanted to set it aside.  The reason you gave me was that you wanted a relationship with your grandkids.  I remember noting that you never mentioned anything about wanting a relationship with me.
+
+I would've never kept you from your grandkids.  I also wasn’t mad at you, whatever it was about  I don’t hold grudges.  I don’t stop talking to people because I disagree with them.  I was, in fact, happy to see your call.

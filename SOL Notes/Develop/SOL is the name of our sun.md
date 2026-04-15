@@ -1,0 +1,1 @@
+SOL is the name of our sun.

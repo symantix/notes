@@ -1,0 +1,1 @@
+I've always looked at my life in terms of majors and minors.

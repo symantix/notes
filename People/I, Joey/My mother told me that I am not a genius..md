@@ -1,0 +1,9 @@
+My mother told me that I am not a genius.
+
+Was she joking?  It didn’t seem like it.  It was over text, and even so, it was clear that she said it with a half grin.  She said it in response to my half-joking claim that I was a genius, though I do believe that in many ways I am quite brilliant.  It felt like she was chuckling at the notion that I might be a genius, or that she might be putting me in my place.  
+
+But perhaps I’m hearing it through the filter of a child.  If most anyone else had told me that, I would’ve laughed and forgotten it, accepted it in a self-deprecating fashion.
+
+My second grade teacher told my Mom that I was gifted.  My Mom thought she meant retarded, and left the meeting.  It wasn’t until my third grade teacher told her something similar, that I was finally placed in advanced classes.  And sometimes I wonder why she heard my second grade teacher wrong.  She told me that, in her day, gifted meant retarded.  I don’t see any evidence of that in my research, but perhaps she thought it meant that when she heard it used once, or something.  Or maybe she didn’t understand me, maybe she thought that some of my quirks, or my contentfulness with solitude, were signs of autism.
+
+She never apologized for saying that to me.  But I do wonder if my lack of response to her comment bothered her, because a few days later she texted me one of the greatest compliments I had ever received.  She told me that I was the most creative person she had ever met.  My mom is hard headed, and terrible at admitting to her faults.  Perhaps in her mind, to re-address the matter directly might seem like a sign of weakness, it might feel like groveling to her.   She said I wasn’t a genius, and yet no one who would be considered worthy of the compliment that she gave me, could ever be considered anything less.

@@ -1,0 +1,1 @@
+People need to have others to whom they can tell anything.  When that person is not the parent, it says more about the parent than the child.

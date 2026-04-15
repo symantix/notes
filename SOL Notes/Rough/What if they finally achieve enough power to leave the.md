@@ -1,0 +1,1 @@
+What if they finally achieve enough power to leave the atmosphere, by feeding the breakfast sauce into the combined system, Atmo as the brain and navigator, grandma’s heart, the warehouse as a shell.

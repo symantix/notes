@@ -1,0 +1,1 @@
+They meet other kids in space, who have also built ships.

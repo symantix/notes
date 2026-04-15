@@ -1,0 +1,1 @@
+Part of the construction site collapses because of massive ant excavation.  Maybe this leads into the adventure outlined in the gate painting.

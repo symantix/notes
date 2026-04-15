@@ -1,0 +1,1 @@
+Cancel culture is where spineless corporations react to a screaming, mentally unstable minority.  That’s not this.  This is where a hack with no ratings finally tells his last lie on a platform he doesn’t deserve.

@@ -1,0 +1,1 @@
+My prayer to God for America:  We’ve only been going for a couple of centuries.  Give us time to cook.

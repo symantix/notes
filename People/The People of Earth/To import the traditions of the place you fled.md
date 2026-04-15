@@ -1,0 +1,1 @@
+"To import the traditions of the place you fled, the place that failed you, is to condemn the place you seek with the same failures."

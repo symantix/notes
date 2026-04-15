@@ -1,0 +1,3 @@
+“'An equivocal answer is one that manages not to take a stand; an unequivocal answer, by contrast, is strong and clear.' So, to be cloudless, I'm not standing on theism or atheism, but I am leaning on faith: my perspective of this and that. And for the record, I do like what Carter is doing now.” ~ dad
+
+This would suggest that a stumble in such a faith is not the great sin that our church narratives would have us believe, but simply the progress of a failed experiment.  When faith fails, one assesses why, and a change of faith perspective may then be in order, before proceeding to the next experiment.

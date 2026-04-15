@@ -1,0 +1,1 @@
+Man, I wish that we were selfish. We could do so much more.

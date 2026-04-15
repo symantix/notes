@@ -1,0 +1,1 @@
+I think our engineers should report their time somewhere.  It sets a precedent and daily reminder that time should be tracked.  

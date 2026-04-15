@@ -1,0 +1,1 @@
+My son asks me to check the doors at night all the time.  That doesn’t even make sense, I’m supposed to be asking him to do stuff like that, I’m the dad, not him.  And as I was locking the back door that had been left unlocked, I thought to myself, I’m gonna have to put a stop to this nonsense.

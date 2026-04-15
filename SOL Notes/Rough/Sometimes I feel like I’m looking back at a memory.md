@@ -1,0 +1,1 @@
+Sometimes I feel like I’m looking back at a memory.  Like Im looking back on this moment from after my death.

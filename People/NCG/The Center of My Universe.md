@@ -1,0 +1,1 @@
+If somebody could please convince me that the world won’t stop moving if I do, I promise that I won’t work another day in my life.  But while I recognize that the world doesn’t revolve around me, it certainly does so because of me.

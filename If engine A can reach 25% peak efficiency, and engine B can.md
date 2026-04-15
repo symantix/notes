@@ -1,0 +1,1 @@
+If engine A can reach 25% peak efficiency, and engine B can reach 50% peak efficiency, then is engine B 100% more efficient, or 25% more efficient than engine A?

@@ -1,0 +1,3 @@
+Hey you lazy Sunday lovers!  If you’re not gonna dedicate your Sundays to god, then dedicate them to the Highest Ideal.  Gather with those who oppose your confirmation bias, see past your big ugly nose, and rise above your own comfortable skin!  NCG Studios is the church for the churchless, a gathering for the spirit-filled and the godless alike.  Join us Sunday morning for the fellowship of life, and learn more about yourself as you learn about others!  If the world has gone mad around you, and all that you seek is peace within and without, then wake up from your lazy Sunday, and lend your beautiful mind to The Voice of Peace, right here in Pensacola.
+
+NCG Studios begins at 9am.  Join the Conversation, or live a life filled with regret!

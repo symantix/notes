@@ -1,0 +1,1 @@
+A character, maybe a villain that we know is hunting  the kids.  Have him hiding in frames, as an Easter egg.  He doesn't come out shortly after.  He's not even part of the scene.  It's just something for readers to find.

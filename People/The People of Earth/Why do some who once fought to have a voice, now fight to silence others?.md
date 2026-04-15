@@ -1,0 +1,1 @@
+Why do some who once fought to have a voice, now fight to silence others?

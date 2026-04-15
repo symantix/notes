@@ -1,0 +1,1 @@
+I have never had time for any friend who doesn't like something about me but doesn't care enough to speak to me about it, or can't speak to me with respect.  This is one reason why my friends have always been few, and as someone who has prioritized personal and professional goals every day since early childhood, that's something I can easily live with.

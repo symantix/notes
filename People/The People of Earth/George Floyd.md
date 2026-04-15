@@ -1,0 +1,3 @@
+George Floyd
+
+Derek Chauvin is currently the most hated person in the world.  An innocent man was brutally murdered by a Protector of the Peace.  I support our police officers and our sheriff departments, and I put my trust in them to protect the peace in all of our lives, not just some.  That is why the penalty for violating that oath should be doubly so for them, perhaps much more in the case of murder in any degree.  And those officers who stood by and did nothing should never be trusted to serve again, and they should be prosecuted as accomplices to homicide, again doubly so.  This the price for keeping the faith with the rest of our peace-keeping siblings.

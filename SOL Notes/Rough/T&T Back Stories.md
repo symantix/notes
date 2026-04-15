@@ -1,0 +1,3 @@
+Tiber finds out that he comes from a long line of viking ship builders.  We have a short arc where his dad has long Viking hair beard horned helmet, the works, like your old Viking t-shirt.  It’s still in space though, maybe Red Rising style (remember that Viking dude in space?)
+
+Tiq gets in some sort of accident, and ends up in the hospital for a while.  While unconscious, she encounters her (now dead) mother, and has an adventure with her that culminates with her mother facing death with her, imparting her experience and wisdom, and sending Tiq back to the land of the living.

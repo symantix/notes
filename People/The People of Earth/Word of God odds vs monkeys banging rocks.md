@@ -1,0 +1,1 @@
+The odds of the Word of God coming from man, is about as likely as if it came from trillions of monkeys banging on rocks, paper, and keyboards.

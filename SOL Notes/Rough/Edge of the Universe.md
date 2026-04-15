@@ -1,0 +1,1 @@
+The kids travel to the edge of the universe.  One of them touches the outer wall of the universe, and sees, faintly, another child on the other side, touching the wall in the same place, hand to hand.  Kids are different, so clearly not a reflection 

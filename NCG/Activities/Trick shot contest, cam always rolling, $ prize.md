@@ -1,0 +1,1 @@
+Trick shot contest, cam always rolling, $ prize

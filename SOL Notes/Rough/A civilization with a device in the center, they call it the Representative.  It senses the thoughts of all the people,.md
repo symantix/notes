@@ -1,0 +1,1 @@
+A civilization with a device in the center, they call it the Representative.  It senses the thoughts of all the people, and serves as their ruler according to their corporate wishes.  The purest democracy.

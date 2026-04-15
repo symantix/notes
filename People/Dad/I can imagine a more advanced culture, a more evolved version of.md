@@ -1,0 +1,1 @@
+I can imagine a more advanced culture, a more evolved version of ourselves, a smarter generation, who have all forgotten how to read.[^ Really?  Audio and video may have more context, but reading is a very efficient way to gather information, and takes less time than audio or video.]

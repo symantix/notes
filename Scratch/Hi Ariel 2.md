@@ -1,0 +1,9 @@
+Hi Ariel.  Ian asked me to catch up with you about the interviews and the management position.
+
+Regarding the interviews:  Please feel free to pass along whomever you want me to interview, and I'll take care of it.
+
+Regarding the Engineering Manager role:  First let me say that I really don't know if I'm qualified for the position.  If I'm not, that's okay.  I wasn't even sure if I was going to put my hat in.  I applied for an engineering position at Lincoln, and I did so humbly and gratefully, knowing that I would have to work hard to ditch an old programming model, and adopt many new technologies to get up to speed.  I'm perfectly content to continue coding.  If I need to be ahead of everyone with regard to the scope of my engineering knowledge, then someone else will need to fill this role.  I'm not up-to-date with every technology that I hear mentioned in our engineering meetings.  But I do get up to speed when I need to be, and you will never see me hiding the talent of others or taking credit that I don't deserve.  I feel that one of the main purposes of a manager is to recognize talent, acknowledge it, put it to good use, and lift it up for the whole team to see.  I enjoy working with people, facilitating their needs and making sure they understand project goals, building team cohesion and moral, etc.  I've always felt that good managers should be servants, not masters.
+
+If you're open to my application, then perhaps we should set aside some time for you to make sure that I understand everything that is required.  And again, if you feel that I'm not yet qualified, we can stop right here, and I assure you there will be no hard feelings.
+
+Thanks!

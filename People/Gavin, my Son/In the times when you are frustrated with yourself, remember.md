@@ -1,0 +1,1 @@
+In the times when you are frustrated with yourself, remember what Grandpa says:  That we should be committed to a process, not a conclusion.  This is the process.  Let go of your conclusions.

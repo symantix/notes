@@ -1,0 +1,3 @@
+Me in History
+
+It's impossible for me to imagine myself realistically at any point in our historical past, because at some point I imagine myself who is in turn also imagining all the awesome tech they're going to have in the future.  I'm imagining myself as a soldier in a war camp, sitting beside a fire with his comrades.  And at some point in this dream, I'm staring into the fire, thinking about how awesome iPhones are going to be 2000 years from now.

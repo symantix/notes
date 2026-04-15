@@ -1,0 +1,17 @@
+Tonight I was talking with two of the best comedians in our area, in my opinion, and they started laughing about how little experience I have, and yet I was among the best comics at Back Porch.  Their words, not mine.  And I'm excluding their names from this story to protect the innocent.  I'm sure they didn't want to make it a public announcement.
+
+One of these people has given me some lofty compliments before.  I have a hard time fully believing in his sincerity.  I've only been on stage 4 times.  Could these guys be just pumping me up, so that I stay in the culture?  Is this something they say to all of the reasonably talented comics?
+
+And so that is my one doubt.  That these guys are just flatterers.  I think I might have thought that about you at one time, and it made me angry.  But all I really know is that, when I am in the role of a mentor, as they are to me, I will not tell a student that they are among the best, if they are not.  That's leading a person down a path that's wrong for them, and that's wrong to do.  I presume other people view sincerity in the same way. But this is my one small doubt, my one small battle.
+
+In any case, it meant a lot to hear.  Although I was afraid, I knew I would do well a year before I actually got on stage, from the moment I started thinking about it.  I was really confident about that.  I could see it so well in my head.  My fear was that I would be wrong, and how devastating that could be, if I didn't manage my expectations, and prepare for a potential bomb.  And so I guarded my heart, but I let just enough of my inner confidence out into the world, to receive some very meaningful compliments from local comedians that I admire.
+
+This is all of the confidence and hope that I allowed myself to have these nights.  And that is perhaps why, although I did well enough to be proud, I didn't do as well as I had hoped.  I have been much, much more impressive in my own imagination.  I have done many minutes of long form improvised monologue, and found my own voice to be very entertaining.  It is the fear that not everyone will agree, that holds me back.  And so I am only confident enough to show a few of my cards.
+
+I think my dad suffered from this problem for decades, always talking about how ready he was to say some next level shit.  And then when he finally says it, he doesn't point out that this is the cutting edge shit, so that we'll all wake the fuck up and focus.
+
+There are some people that I am completely confident around.  Monica is the best example, as I am usually 100% confident around her, and I have been incredibly funny for her and with her, 100% improv, 100% hilarious.
+
+I'm pretty confident around you, but you're my dad, and I look up to you in a way that few others share, and so it's sometimes difficult to witness when I've failed to entertain you.  Not incredibly difficult, but a little.  
+
+Matt and Rick are pretty easy to relax around.  Jack is right in there, but I'm not always confident that he'll understand my intent when I get too cocky, and so I'll hold back for fear of hurting his feelings.  Strangely, I have a few old work colleagues that I can relax around close to 100% of the time.  It's probably because I'm around them so damn much.  Ironically, I think I've hurt a couple of their feelings.

@@ -1,0 +1,1 @@
+Need something in this story called shard of darkness.

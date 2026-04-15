@@ -1,0 +1,1 @@
+Once I firmly decided to set anger and pain to the side, and to move forward toward love and patience in all of my family and worldly interactions, it was at first like stepping into a play, and then like stepping into a dream.

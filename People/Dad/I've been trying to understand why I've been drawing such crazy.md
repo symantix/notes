@@ -1,0 +1,1 @@
+I've been trying to understand why I've been drawing such crazy shit lately, and tonight I realized that a big part of it, is that I'm trying to scare my son.  It sounds cruel at first, but when I dig a little deeper, I find that I'm using this accomplishment as a barometer for excellence.  If I can scare my son with a simple drawing, that's an awesome drawing.

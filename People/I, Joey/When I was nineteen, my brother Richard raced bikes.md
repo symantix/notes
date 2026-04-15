@@ -1,0 +1,1 @@
+When I was nineteen, my brother Richard raced bikes professionally, and I drove with his manager to see one of his races an hour or two away.  I found out later that, after the ride, he told my brother that I was a space cadet.  To this day, I haven’t received no greater compliment.

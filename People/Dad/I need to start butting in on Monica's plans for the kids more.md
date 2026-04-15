@@ -1,0 +1,1 @@
+I need to start butting in on Monica's plans for the kids more often.  I need to interrupt homework, and chores.  Nothing is more important than sharing something with my kids, often.

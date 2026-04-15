@@ -1,0 +1,5 @@
+I’m glad we’re communicating at least a bit.  I never wanted anything more, tbh.  I don’t want to destroy our relationship with our primitive emotion, anymore than you do.  I didn’t even understand my emotions when I was in my twenties, or how they affected others.  I just wallowed in them.  Now I understand that they all have a purpose, and that they can be dangerous, and we need to be careful with them.
+
+I think we both may have said things, just in these last two texts, that might disturb each of us, for our own reasons.  I hope you know that I’ve spent a long time thinking through my politics, and I know you have too.  I honestly feel like Bill Maher, that I haven’t moved much from my political positions, and that the Democratic Party has moved beneath me, until I can no longer claim to be one, as I did my whole life.  I may look differently from where you stand, but I just want you to understand my perspective, at least a little bit.  
+
+I don’t have anymore to say about that clip at this point, but I’m glad you shared it.

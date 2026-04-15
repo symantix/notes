@@ -1,0 +1,1 @@
+I want to be more like I am with Monica and my kids, more often, and in front of more people.  I want a huge part of who I am with them, to be a huge part of my stage presence.

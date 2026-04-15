@@ -1,0 +1,3 @@
+I’m not sure it would help to put him on one of these major tasks at this point, particularly because they’re linear (correct the db -> merge to spreadsheet -> import final spreadsheet back to db).  Actually, the import code could build could begin now, but he's unfamiliar with Joe's db structure.  
+
+If he could be on call for me, perhaps I could delegate some sub tasks that would help me from time to time, and maybe he could write some of the import logic.  Aside from that, he could definitely address any urgent QA related to this sprint.

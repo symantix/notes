@@ -1,0 +1,1 @@
+One time, my friends and I were so poor that, for lunch every day, we would all scrape around and find a quarter.  Then I would go to Little Caesars and play their Simon says game, and I would win an order of bread sticks.  A couple of times I won an actual pizza.

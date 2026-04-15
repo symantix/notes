@@ -1,0 +1,1 @@
+Open posture.  Generosity of spirit.  I promise you, this is the road forward.  You are worried about your career?  This mantra, this motto, this way of life, will be your salvation.  People will flock to you because of your generous spirit, warm humor, and valuable advise.  Some of these people will give you money.

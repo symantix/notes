@@ -1,0 +1,1 @@
+Why would we ever think that there is a finite amount of knowledge, that one day, perhaps a million years from now, we might possess the full spectrum of knowledge?  We are creating new information every day, each and all of us, even as we learn.  The universe is ever changing, and what We thought we knew a million years ago, isn't even true anymore.

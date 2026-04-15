@@ -1,0 +1,5 @@
+When trying to change your behavior, especially when it comes to addiction or habits, a direct approach rarely works.  Trying to overcome addictions with sheer willpower is generally fruitless, since you're concentrating on the thing you're addicted to, and since concentrating on the thing you’re addicted to is the root of the problem in the first place.
+
+On the other hand, if you change a persons reality, it can change their behavior, sometimes in unpredictable ways.  Placing a persons mind in a fresh reality gives them new things to think about, and less time to obsess over old habits.
+
+So if you want to change your habits, lose your addictions, instead of focusing on the habit, focus on your reality.  Change it.  Do something new.  Go to bed at a different time.  Stop watching tv for a while.  Quit your job.  Explore potential new hobbies, or pour your energy into an old one.  As of now the human mind is a mystery, and changing its behavior ultimately comes down to persistent trial and error.

@@ -1,0 +1,1 @@
+People with social anxieties, especially those with leadership qualities, were born to bring a sense of meaning and purpose to social situations.

@@ -1,0 +1,5 @@
+Preparing for Disaster 
+
+When I was a child, I used to go on grand adventures, and face villains, and carry my toy weapons with me to conquer them.  And then when I grew up, I stopped playing those games, and those adventures turned into moments of worry, vulnerability, and the occasional nightmare.  Those adventures were based on my mind interpreting reality, struggling with adversity, hearing stories, and ultimately, using my imagination as an outlet for my fears, which had been abstracted into the characters from the stories I had heard.
+
+Adults usually stop playing most of their childhood pretend adventure games, and that’s okay.  But in this savage world, when we allow our nightmares to play out in our minds, we should watch them intently, and decide what to do in that nightmare.  We should allow fear to flow through us, become familiar with how it feels, and learn to relax through it.  We should stop pretending, but we should start preparing, and in some cases, training, to face the moment, should it ever come, of our greatest fears coming true.  And then we must relax through fear, focus our minds, and act.

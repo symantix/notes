@@ -1,0 +1,3 @@
+[![][NBI1]][NBI1]
+[NBI1]: NBImages/20200530-230046.jpeg
+

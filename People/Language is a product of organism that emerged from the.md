@@ -1,0 +1,3 @@
+Language is a product of organism that emerged from the evolution of our species.  Grammar, by contrast, is an invention of humans just like you.  Grammar is a tool for describing, or attempting to describe, the structure and usage of language at the time that the grammar was written.  But language continues to evolve, and all grammars eventually become outdated.
+
+Learn the most current rules, and then decide for yourself, how and when to break them.  Don’t let anyone tell you how your voice should sound, or how it should be captured in writing.  If you’re writing something formal for a client or a business team, I would suggest you know the rules and follow them.  Otherwise, just do your best to be clear, or don’t.

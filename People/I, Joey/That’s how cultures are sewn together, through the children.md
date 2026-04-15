@@ -1,0 +1,1 @@
+That’s how cultures are sewn together, through the children.  As we sink well into adulthood, we’ve gone far down our path, and sometimes it can be difficult to make sharp turns.  

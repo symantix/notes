@@ -1,0 +1,1 @@
+In addition to a very deep affinity for translating customer needs into technical solutions, Joey has a natural empathy for people and how to solve their problems with technology. With a firm character, gentle humility, and first class development experience, it was an absolute pleasure to work with him to build the Boxzooka platform.

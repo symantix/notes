@@ -1,0 +1,1 @@
+At minimum, gender is the distance of how one sees their own visual appearance on the inside, from how a person actually looks on the outside.  Impossible to measure precisely, but sex at birth seems to be the simplest way to start.  This is also a key reason why extreme distances are referred as dysphoria, and why it can be far more extreme than mere sexuality.

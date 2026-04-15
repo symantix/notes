@@ -1,0 +1,3 @@
+Children Are Like a Stream
+
+Like the water, they flow to the places that are easiest.  For most children, this means serious trouble.  Flowing to the wrong place can derail their life for years or decades, or even end it.  If you want to change the flow of their stream, you as a parent must lift a giant rock, and move it in front of them, into a place that meets their life head on, alters the currents, and rechannels the water to a brighter place.

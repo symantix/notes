@@ -1,0 +1,1 @@
+Free speech protections are very limited in the private sector.  The first amendment protects American citizens from legal repercussions for speaking their mind, with some limitations.  But businesses are not legally obligated to continue employing anyone if they don’t like something they said, or what they stand for.

@@ -1,0 +1,1 @@
+The amazing thing about messiah stories is that they teach us that sometimes it's necessary for a minority, even just one man, to oppose the rest of the world, in order to save the world from itself.

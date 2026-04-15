@@ -1,0 +1,20 @@
+Once upon a time, there was a great famine in which people jealously hoarded whatever food they could find, hiding it even from their friends and neighbors. 
+
+One day a wandering soldier came into a village and began asking questions as if he planned to stay for the night.
+
+"There's not a bite to eat in the whole province," he was told. "Better keep moving on."
+
+"Oh, I have everything I need," he said. "In fact, I was thinking of making some stone soup to share with all of you." He pulled an iron cauldron from his wagon, filled it with water, and built a fire under it. Then, with great ceremony, he drew an ordinary-looking stone from a velvet bag and dropped it into the water.
+
+By now, hearing the rumor of food, most of the villagers had come to the square or watched from their windows. As the soldier sniffed the broth and licked his lips in anticipation, hunger began to overcome their skepticism.
+
+"Ahh," the soldier said to himself rather loudly, "I do like a tasty stone soup. Of course, stone soup with cabbage -- that's hard to beat."
+
+Soon a villager approached hesitantly, holding a cabbage he'd retrieved from its hiding place, and added it to the pot. "Amazing!" cried the soldier. "You know, I once had stone soup with cabbage and a bit of salt beef as well, and it was fit for a king."
+
+The village butcher managed to find some salt beef . . . and so it went, through potatoes, onions, carrots, mushrooms, and so on, until there was indeed a delicious meal for all. The villagers offered the soldier a great deal of money for the magic stone, but he refused to sell and traveled on the next day. 
+
+
+
+The moral is that by working together, with everyone contributing what they can, a greater good is achieved.
+

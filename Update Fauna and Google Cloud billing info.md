@@ -1,0 +1,2 @@
+- Update Fauna and Google Cloud billing info
+- 

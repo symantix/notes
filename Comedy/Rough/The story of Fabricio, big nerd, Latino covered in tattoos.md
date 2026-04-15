@@ -1,0 +1,1 @@
+The story of Fabricio, big nerd, Latino covered in tattoos 

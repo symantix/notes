@@ -1,0 +1,3 @@
+There’s a “Council of Tibers”.  A temple with 12 corners.  In each corner stands a Tiber who has traveled back in time from 5 years into the future, 12 times. They are trying to stop a terrible event, and have tried 12 times, or maybe 9 times, and there are 3 empty slots.
+
+How do they know that they need 12 slots?  Because after Tiber 3, Tiber 12 came back in time to celebrate, and to provide instructions for the temple. Or maybe it’s a corporate building with twelve offices.  I think I like that better.  Why?  Because the office allows them to stop the event AND do a bunch of other cool stuff.

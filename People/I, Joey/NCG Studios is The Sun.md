@@ -1,0 +1,1 @@
+NCG Studios is The Sun.  Dr. Jones is Jupiter.  I am The Earth.  Monica is the Moon. My children are my inhabitants.  When night falls, Monica provides the light in the darkness.

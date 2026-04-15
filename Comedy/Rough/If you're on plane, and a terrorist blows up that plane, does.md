@@ -1,0 +1,1 @@
+If you're on a plane, and a terrorist blows up that plane, does your family get a refund for the ticket?

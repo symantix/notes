@@ -1,0 +1,1 @@
+Setting up automated monthly task to validate all school emails.  Running into an issue with function timeout which may be irresolvable (max is 26 seconds, will likely require more).  Will need to take a different approach if so.  Speaking with PM tomorrow.

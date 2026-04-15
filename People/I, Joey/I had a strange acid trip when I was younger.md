@@ -1,0 +1,1 @@
+I had a strange acid trip when I was younger. It taught me that, when I don’t know my way, I should follow the rain. I don’t know if that was good advise or not.

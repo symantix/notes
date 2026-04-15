@@ -1,0 +1,1 @@
+The dad has to explain to Y2K that Simone is a friend, and she did not kill it.

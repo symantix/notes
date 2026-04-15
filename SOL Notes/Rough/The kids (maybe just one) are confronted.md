@@ -1,0 +1,1 @@
+One of the kids is confronted by an extremely menacing-looking robot, just standing there.  They freak out and blast the heck out of it.  When the smoke clears, it is standing unphased.  They are ultimately confronted by a race of robots, which were designed for battle, but have learned the ways of peace after their creators passed from this world.  They can't speak.

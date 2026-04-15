@@ -1,0 +1,1 @@
+Rule number one: Eat some protein, fill up with some healthy food, before you start chowing down on a bunch of sour babies, sour patch babies, okay?  I know, they call them sour patch kids, but they’re clearly babies, okay?  They have sour patch mommies and daddies, they all do.  How do you feel now, huh?  Plus they’re making you fat, stopping eating them!

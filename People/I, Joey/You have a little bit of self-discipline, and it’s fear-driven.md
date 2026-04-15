@@ -1,0 +1,1 @@
+You have a little bit of self-discipline, and it’s fear-driven

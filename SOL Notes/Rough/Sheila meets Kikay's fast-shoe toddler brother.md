@@ -1,0 +1,1 @@
+Sheila meets Kikay's little brother (? another kid, a boy, that is her age).  He's not as articulate as she is, but he has super fast shoes.  He wants to show her how fast he is.  The last panel is the toddler, running as fast as a toddler can, which isn't very fast.

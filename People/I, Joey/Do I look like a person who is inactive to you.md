@@ -1,0 +1,1 @@
+Do I look like a person who is inactive to you?  Do I look lazy, lying here in my bed?  I exercise every day, far more than I did even as a child.  And as for work, I can work lying down, sitting up, standing up, walking, in my head, in my sleep.  When I was 10, I knew more about intellectual work than most people know in their lifetime.

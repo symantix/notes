@@ -1,0 +1,1 @@
+Tiq spends some time with her mom in the hospital garden.

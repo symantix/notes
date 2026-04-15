@@ -1,0 +1,1 @@
+I think that my challenges when it comes to small talk may have to do with the way my brain thinks about conversation. I'm always looking for a wave to ride.

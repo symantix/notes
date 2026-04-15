@@ -1,0 +1,1 @@
+I'm scared that I'll get nervous on stage.  Why would I get nervous?  Because I'm scared.  This is circular logic.  It makes no sense.  There is never a reason to be nervous in front of a typical audience.  You can mess up, and the worst that will happen is that you can try again next time.

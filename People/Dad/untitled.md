@@ -1,0 +1,1 @@
+In order to become architects of a wiser, more enlightened world, we must step back from our own thoughts, evaluating them with objective clarity to discern which, if any, hold true value. And that requires a great deal of courage to question ourselves and refine our thinking. So, let’s pursue the higher calling: being committed to a process, not a conclusion. 

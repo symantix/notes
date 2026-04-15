@@ -1,0 +1,3 @@
+The kids encounter a xenotitan, an alien so gigantic, they can't even see it all at once from any closer than 1,000 kilometers away.  It demands a tribute for safe passage through its space, a rare item, launching the kids on a mission of danger and discovery.
+
+Maybe they encounter an army of xenotitans.  They start chasing the ship, and the ship can't outrun them.  Ultimately, they hide in the armpit of the General.

@@ -1,0 +1,1 @@
+Simone speaks with atmo, in a somewhat westworld fashion, as a psychiatrist of sorts, though not directly stated.

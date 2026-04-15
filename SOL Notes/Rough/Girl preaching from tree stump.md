@@ -1,0 +1,1 @@
+Girl standing on a tree stump, preaching to other kids

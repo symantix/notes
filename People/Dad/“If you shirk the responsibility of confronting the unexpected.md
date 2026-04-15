@@ -1,0 +1,3 @@
+“If you shirk the responsibility of confronting the unexpected, even when it appears in manageable doses, reality itself will become unsustainably disorganized and chaotic. Then it will grow bigger and swallow all order, all sense, and all predictability. Ignored reality transforms itself (reverts back) into the great Goddess of Chaos, the great reptilian Monster of the Unknown—the great predatory beast against which mankind has struggled since the dawn of time. If the gap between pretence and reality goes unmentioned, it will widen, you will fall into it, and the consequences will not be good. Ignored reality manifests itself in an abyss of confusion and suffering.”
+
+A quote he sent to me, unknown author

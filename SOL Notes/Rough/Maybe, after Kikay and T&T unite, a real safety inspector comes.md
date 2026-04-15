@@ -1,0 +1,1 @@
+Maybe, after Kikay and T&T unite, a real safety inspector comes along.  At first, Tiber thinks it’s another joke.  This inspector ultimately becomes their nemesis, and a huge obstacle to actual launch.

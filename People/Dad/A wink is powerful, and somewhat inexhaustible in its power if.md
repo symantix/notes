@@ -1,0 +1,1 @@
+A wink is powerful, and somewhat inexhaustible in its power if paced correctly.  In almost every context of family and intimate friends, there is a subtext that says "There is something between us that only the two of us understand".

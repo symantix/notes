@@ -1,0 +1,1 @@
+A lot of people are in favor of whipping.  Whipping destroys a kids spirit.  You don’t want to control it, or you’ll destroy it, since the whole idea of having spirit is hinged to you being your own person.  You shouldn’t control a kid’s spirit, you should teach them to control it, to focus it, to use it for good, for their own success, and for the success of those around them.

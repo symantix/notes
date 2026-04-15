@@ -1,0 +1,7 @@
+I love you, nephew.  I watched the videos you pointed out yesterday.  I don't want you to think I'm ignoring you, so I feel I owe you an explanation for why I won't be responding to political content, at least for a while.
+
+I've had three people who love you a lot tell me that they don't think this conversation is healthy for you right now.  So for the time being, I'm going to take a step back from discussing politics.    
+
+I'd like for you to start practicing dialectics, which is the deep endeavor to formulate an internal argument from opposing sides.  In other words, try hard to see all the issues that you're exploring from both sides.  Try to imagine and write down some actual ideas and arguments that would faithfully represent the viewpoint that opposes the one you think is right.  See if you can defeat your own arguments, positions, and beliefs.  This is what the greatest of scholars do in their endeavors to discover the truth through reason, logic, and thorough internal deliberation.  I think this will be a less stressful exercise for you, and best of all, I won't be the object of your frustrations (that's a bit of a joke).
+
+In the mean time, I hope that we can still be friends, and work on art, and figure out how to bellow like a maniac when we sing.

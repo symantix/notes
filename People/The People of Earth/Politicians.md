@@ -1,0 +1,3 @@
+Many of the politicians I've met have a very kind way about them when they are dealing with the average person, or if they are on camera.  But I've had some unique insight into their behavior toward one another, and toward those who don't please them.  It's rarely pretty.  Many of them are vicious people, willing to ruin the lives of anyone who stands in their way.  They will scream and cuss in private, while smiling and lying and using a gentle tone in public.
+
+When we vote, we often look for the person who is the kindest and most professional on the stage.

@@ -1,0 +1,1 @@
+Create a universe out of SOL.  Spend time with other characters besides T&T for a few page here and there, or an entire episode.  Cut to scenes that T&T aren’t even aware are happening, like some kids who are plotting against them.

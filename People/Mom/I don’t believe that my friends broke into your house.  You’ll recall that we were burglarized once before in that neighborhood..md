@@ -1,0 +1,1 @@
+I don’t believe that my friends broke into your house.  You’ll recall that we were burglarized once before in that neighborhood.  I never befriended anyone who I believed was capable of that, and no one comes to mind as a possible suspect.

@@ -1,0 +1,1 @@
+Always try to achieve a balance between yourself and others.  Do what's fair for them, but don't forget yourself.  If you do this, they will see it.  It's easy to spot the greedy, especially when they're up close.  People treasure those who are looking out for them.

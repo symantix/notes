@@ -1,0 +1,3 @@
+It’s time for a test flight.  Everyone, mainly Tiq, talks Tiber into piloting.  Tiber is scared, but Tiq is persuasive.  Chaos ensues.
+
+Tiber gets shot across the sky, and ultimately lost.  They go on a search, encounter dangerous aliens.  They find Tiber, he has become the leader of a tribe, maybe of animals. Or maybe a monk at a monastery full of children.  Or maybe a bunch of lizards.  Maybe Tiber bumped his head and lost his mind.  Or maybe he meets a homeless man who 

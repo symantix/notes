@@ -1,0 +1,1 @@
+We can say far more with our lives than what we can say in words.  Language is far broader than our narrow speech patterns can account for.  Sometimes we speak with our actions.  I speak with code, and with chores, with art or music, and with dedication.  Words, are just the tip of the iceberg.

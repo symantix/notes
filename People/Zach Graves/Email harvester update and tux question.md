@@ -1,0 +1,6 @@
+Gentlemen, good afternoon.  A couple of things:
+
+- Just a quick update on the email harvester:  I believe I'm very close on this.  I've sorted out most of the complexity.  I'm currently working on the interface for saving or dismissing new contacts, but that's also requiring some modifications to the overall system.  I'm aiming to have a prototype ready today, but should be able to submit something for review by EOD tomorrow in any case.
+- I have a question about the Gala.  I've needed a tux maybe 1-2 times in my adult life.  I'm assuming it's okay to put a tux rental on the company card.  Please let me know if that's not okay.  Here's what I'm more uncertain about:  If I attend 3-4 black tie events over the next couple of years, it would be more cost effective just to buy a tux.  Does that make sense?  If so, I'm happy to commit to paying some sort of balance if, for some reason, I decide to part ways with FAI before it pays for itself, but I don't see that happening.  Also happy to keep this conversation between us, if this seems like an fringe circumstance.
+
+Thanks!

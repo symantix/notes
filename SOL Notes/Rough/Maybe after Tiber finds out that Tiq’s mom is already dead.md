@@ -1,0 +1,1 @@
+Maybe after Tiber finds out that Tiq’s mom is already dead, maybe he promises something to Tiq.

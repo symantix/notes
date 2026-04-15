@@ -1,0 +1,1 @@
+What if Atmo really does have a family, running as a simulation in its memory?  What if, in order to survive the Y2K bug, it had to find a source of strength, and this was where it found it?  And what if its name really is Chelaton, or whatever is decided?  And what if Simone did destroy its family when she pulled its battery?

@@ -1,0 +1,1 @@
+The angriest young men stood out front, looking like the calmest of them all.

@@ -1,0 +1,19 @@
+My name is Joey Livingston.  I've had at least two personalities for as long as I can remember, but I only recently realized it.  And they have been at war with one another for most of my breathing life.
+
+There's the work part of me.  He's the programmer.  He's the one who puts others before himself.  He's pretty fucking serious sometimes... Sir (look a dude in the eye).  He's the disciplinarian.  He doesn't mind taking risks, as long as they're small and calculated.  He's...smart enough. 
+
+And then there's the play part of me.  He's the child.  He's the artist.  He's the ass hole...Sir (same dude).  He's pretty fucking intense sir.  He's... a little self absorbed.  Ah, and he's a fucking lazy freeloader.  He only works when it feels like he's playing.  But holy shit, when he works, when play works, it's a fucking site to behold.  He's brilliant.  He takes, enormous leaps of faith.  He's... just barely heterosexual.  
+
+One man can't possibly fit the description of these two men at once. They're too different.  So I must be two men.
+
+I'm now forty, and I also started smoking pot about two years ago, for the first time since I was a kid.  The past few months I've been smoking pretty regularly.  One month after my fortieth birthday, and I’m sitting on my back porch enjoying the drifting patterns of the smoke, and I started realizing that by allowing this war inside me to continue, I'm allowing mostly the worst parts of each side of me to come out.  The fear, the anger, the hopelessness, the laziness.  Then I start getting this sense that the work part of me, who would like to feel good about himself again for Christ's sake [exaggerated personality], has begun to strike an agreement with the play part of me, and all the play part of me wants… is to play again.  I think the work part of me wants to make sure that his family is taken care of, and the play part of me wants to make sure that he is taken care of.  Work wants to provide for the kids, play wants to spend time with the kids.  Work wants to invest all of his time investing in a financially independent future!
+
+Play wants to paint a picture of a pony.  It's been at least a year since I've painted anything.
+
+So...Work has agreed to allow Play to play more, and play has agreed not to do nothing but sit around all day every day.  Doing nothing is play too, you know, TV is great.  Instead, play will take Work's sense of survival and dedication to others, and use it to become a master of his crafts and build great things with a team.  And work will use Play's mysterious creative forces to apply brilliance to determination.  
+
+Work has agreed to allow me to take more creative risks, and Play has agreed to stop making me masturbate so much.
+
+I think Mr. Robot helped me sort this all out.  Elliot seemed like a nut at first, but then I thought oh, a programmer who is torn between settling into a lucrative and safe career, and giving it all up to Change the world.  I basically just called myself a lunatic.  I may not see any imaginary people standing in this room (at least I don't think, but hell, how can we ever really know?)  Regardless, I've felt these forces warring inside me since I was a child.  The church taught me that the play part of me was the fucking devil!  Play is creative, and you can't be creative without being experimental, and experimental is scary.  It is!  But you don't just call it the sinful nature, and fucking kill it!  Play was so much fun, and I am soo boring. 
+
+How can we be at peace with others, when the personalities within us are at war?  And how can those personalities find peace with one another, when we keep insisting that they are one and the same person?  And how can we really discover what each personality is like, if we won't even acknowledge that they exist?  (Transition into stoner)  Huh?  Right?  Riiiight?  That's some fucked up shit, right bro?  Holy shit.

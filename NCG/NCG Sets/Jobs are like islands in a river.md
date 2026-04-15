@@ -1,0 +1,13 @@
+## Intro
+
+Talk about Star Trek, and the Ferengi.  Talk about their culture, and their exploitative and treachurous nature, capitalism at its worst.  Talk about DS9 and Nog.  His friendship with Jake.  His entrance into Star Fleet, leaving most of his exploitative roots behind.  His people's belief in The Great Material River, his understanding of it, and his ability to accomplish his goals and get where he wanted in life.
+
+- - -
+
+Jobs are like islands in a river.  A great river that flows slowly, but with an irresistible current. The islands aren’t stationary, they are slowly moving down the stream.  Like the tectonic plates of the Earth beneath us, the islands move closer to one another, then further away.  One island might be floating nearby, and then soon it’s gone.  Your first priority of survival and success, your job, is to explore the island you’re on, learn the terrain, then work hard and do your very best to build a life by utilizing the island’s resources, and taking care of the island in return.  Seek first survival, then happiness.  Happiness is important, even vital.  It will give you the power to be not just good, but great at your job, maybe even the best.  This means that the island yields more to you and your people, creating not just a means for survival, but perhaps even the sense of eternal life abundant.  Memories that will last forever.
+
+But my friends, don’t forget about the river.  Don’t forget to take a glance at the islands that are around you from time to time.  You never know when a better island is just one leap of faith away.  And you owe nothing to the island that you’re on, accept a friendly conversation and a fond farewell.  Unless it can provide the better life that you can see just across the pond, you owe it to your people to begin thinking about possibilities and plans, and then discussing it with those whom this decision will affect most directly.
+
+Happiness starts here, among us. Among the gathering.  You think that you can find happiness on your own?  Go ahead and try.  I can tell you for certain that life does not work that way.  Big lives are built first by family, then by community.  The most ignorant critics of the church will attack the donation system, and how it exploits poor people.  Community donations and contributions don’t exploit poor people, dishonest humans do that.  The church that is built by a people of true integrity, using their own gathering financial power, that church provides channels of abundance and pathways of success for every member.
+
+I see many gatherings around me, enormous gatherings of people.  And although the ride looks fun, I don’t like the direction it’s going, and have too many questions about the person that I’m required to become.

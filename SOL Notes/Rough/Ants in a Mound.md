@@ -1,0 +1,1 @@
+Tiber contemplates the ants that live in a mound next to his house.  How he used to think that their death under his feet was their own fault, they chose to invade his home. But then that’s what ants do, and where else would they live?  Draw a subtle comparison between helpless ants and refugees, and the choices we make when dealing with those weaker than ourselves.

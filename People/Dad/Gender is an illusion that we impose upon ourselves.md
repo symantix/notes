@@ -1,0 +1,3 @@
+Gender is an illusion that we impose upon ourselves. We named it, but we never understood it.
+
+To suggest that one behaves in a particular way because of their gender may be correct to some extent, but the reasons behind such a cause/effect scenario are not usually clear.  It could be true simply because society has dictated that people with a certain kind of genitalia must behave this way.  It may be that societal pressures and abuse have caused such a behavior.  In other words the cause may in fact be the societal biases themselves, a sort of vicious cycle.  For example, perhaps women, in general, are more emotional because they have been forced into a more vulnerable role in our society.  Perhaps if societal bias were removed, the emotional volatility would vanish.

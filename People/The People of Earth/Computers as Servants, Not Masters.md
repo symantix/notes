@@ -1,0 +1,1 @@
+If you don’t feel satisfied, that doesn’t necessarily mean you’re not satisfied.  At the very least, it means you need to count your blessings.

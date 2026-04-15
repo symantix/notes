@@ -1,0 +1,1 @@
+Am I the joke, or just its writer?

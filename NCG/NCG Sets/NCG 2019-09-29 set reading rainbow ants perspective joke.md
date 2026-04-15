@@ -1,0 +1,23 @@
+2019-09-29
+
+- * Reading Rainbow
+- Ricky
+- * Imagine
+- Talking to Jack, hee-haw 
+- How our “who’s driving” dynamic has changed
+	- both always willing and ready
+	- Now a bit more like “can you dive?”
+- Why are ants so mean?
+	- it’s hard to see it from their perspective
+	- Hey can you stop walking all other us?  We’re trying to build our whole world in your yard, and you just killed one of our young people.  Several actually.  It’s not cool.  That’s it I’m biting you.  I’ve tried to kind, but you’re acting like you can’t even hear me.  In fact, you know what?  We’re all biting you.
+- Announcements
+- Melody on cam, profitable skill
+	- Friday, didn’t use pro cams
+- Falling in love with the water
+	- initial problem was lack of imagination
+- Photo shoot
+	- Free, so take advantage
+	- Have we discussed a date?
+	- Location?
+		- Lighthouse, military obstacles 
+- * Won’t Last a Day

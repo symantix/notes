@@ -1,0 +1,1 @@
+When resisting temptation, the first step is to realize that you are trapped in a room made of thought, and your task is to find a way out. Years of trying has taught me that thinking about the contents of the room is very counterproductive.  Truly escaping has more to do with forgetting that the room is even there, and thinking about what is beyond it.

@@ -1,0 +1,1 @@
+The story of democrat leadership has become the story of Cain, who became jealous of his brother’s success, and so instead of focusing on making himself a better person, Cain decided to destroy his competition by any means necessary.

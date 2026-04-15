@@ -1,0 +1,1 @@
+T&T are spinning together in space, maybe w larger group.  Tiber seems a little dizzy.  Tiq looks away.  When she looks back, Tiber is responding to her, but you can't see his face, because his helmet glass is covered in puke.

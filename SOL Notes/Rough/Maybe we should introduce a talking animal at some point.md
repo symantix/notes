@@ -1,0 +1,1 @@
+Maybe we should introduce a talking animal at some point.  Maybe it's Kikay's dog, or a large iguana or something.  No one in Kikay's circle thinks it's weird.  Tiq mostly avoids the subject.  Tiber definitely thinks it's weird.  Eventually he brings up the subject with someone else, tbd, who eventually admits that they also think it's definitely weird.

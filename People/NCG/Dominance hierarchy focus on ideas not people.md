@@ -1,0 +1,3 @@
+I believe in a dominance hierarchy, but I don’t believe in dominating people.  Instead, we should turn our focus from each other, and begin dominating our field of study and work.  And when we submit ourselves, it should be to the best idea, and it should not be for the sake of following, but of chasing.  We are in a race of evolution on this earth, and when our leaders truly win, we all win.  Until then, I will race to be first, not because I’m the best, but because the quicker we get where we are going, the better off we’ll all be.
+
+You can have a hierarchy that is not based on dominance.

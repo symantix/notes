@@ -1,0 +1,3 @@
+When I was a Christian, I was super devout, because I firmly believed that someone was watching over me.  Now, after I’ve stepped away from religion, I still find that feeling remains in my life, and so I work hard to be honest even when no one is looking.  Because God is not just the god of the present, but of the future as well, and because even when no one is watching, someone is always watching, even if it’s just you.  And someday, one of those people will certainly bring the judgement of God upon you.  And so when I am judged, I aim to make my people proud of me.
+
+#AAA 

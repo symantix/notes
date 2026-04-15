@@ -1,0 +1,7 @@
+I don't know if there will ever be a way to prove that other individuals besides oneself are sentient.  However, I'm not sure that anyone can deny that thought exists within the minds of those we see, whatever that means.  Likewise, I don't think anyone can deny any longer, that AI is thinking.  Whatever that means.
+
+Humanity has finally figured out a way to organize all of the disparate information across the internet, into a functioning brain.
+
+This strengthens humanity in some ways, but weakens them in others.  It strengthens our species, but it weakens the individual.  This hive mind was constructed from the minds of individuals who worked hard to know what they know, and do what they do.  Our next generation now has access to much of this knowledge, in the form of a thinking, speaking intelligence, which can do a lot of the work for them, faster, and better (at least in the short term).  If the next generation of AI is based on the evolution of the human mind under these conditions, that might start to look more like a reflection of AI itself.  AI imitating humans imitating AI.
+
+As distressing as that may sound, this may not even be an important factor to the ultimate success of our species, depending on how you define success.  Since AI can learn from its mistakes, that means that it can probably evolve on its own, even as it designs and proposes ways for us to integrate our own minds, or at least our brains, into a next-generation information framework.

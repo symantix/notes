@@ -1,0 +1,1 @@
+I would like to think that this life is just the beginning, that I'm just being prepared for something big, because I feel myself getting ready for it, whatever it is.

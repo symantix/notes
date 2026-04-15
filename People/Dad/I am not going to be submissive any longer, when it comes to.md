@@ -1,0 +1,1 @@
+I am not going to be submissive any longer, when it comes to ideas that I disagree with.  I will not use violence, but I will not be silent either.

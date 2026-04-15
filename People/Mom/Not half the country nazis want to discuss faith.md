@@ -1,0 +1,9 @@
+I don’t think you actually believe that more than half the country, including millions and millions of minorities, millions of whom switched parties during that election, and including both Monica and myself (Monica voted for Biden in 2020), are suddenly nazis, suddenly racists, or that we were somehow ignorant of the hatred that Trump would stir up.  Maybe from your perspective, it looks like he’s stirring up hatred from his own voter base, and that the democrats are just responding.  From my perspective, I saw that hatred in the left when Biden was in office, with their terrible policies that were, in my opinion, destroying our country in almost every way.
+
+  
+
+, their carelessness for open borders and complete disregard for how that would effect our own citizens, the funding of illegal immigrants with our social security funds and other sources, their censorship of social media covid communication and other topics they didn’t like, their bastardization of the title IX to abuse women’s rights, and the way many liberal college students spoke not just to Charlie, but to anyone they disagreed with, or anyone who wore a red hat.  I knew they would get extra angry and hateful if Trump was re-elected.  But the democrat party wasn’t offering any solutions to the big problems I saw
+
+  
+
+I would love to spend some time with you some day, trading notes about Mamaw, your experience with Christianity, and each of our experiences with parenting.  In my adult life, I approached Christianity from a much different standpoint than Mamaw.  I ultimately set the label aside, but I still enjoy the Bible and think it has great value in our culture.  I’m in favor of progress, but I don’t believe in discarding the past, nor reinterpreting it.  We must say what is wrong, continue our story, and never forget our big mistakes.

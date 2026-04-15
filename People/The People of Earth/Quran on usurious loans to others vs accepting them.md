@@ -1,0 +1,1 @@
+I’ve been reading the Qu’ran.  So far, it has advised believers, in two different places, not to loan money usuriously.  It has yet to advise believers not to accept usurious loans.

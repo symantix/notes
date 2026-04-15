@@ -1,0 +1,7 @@
+I often feel that it is my deepest insecurities and fears, that cause me to thrive almost naturally.
+
+For example, when I was a child, I was often made to feel like I didn’t pull my weight enough.  And it was true in the most obvious way.  I didn’t always do my homework.  I didn’t keep my room clean.  I didn’t always get the lawn mowed, or do any of my other chores.  This is now manifested into an adult fear that I am not pulling my weight at Boxzooka, or when working with a new freelance client, or perhaps even at the studio or with family.  So when it comes to things that are my strengths, like coming up with ideas for things, that desperation and fear rises from the back of my mind, to the back of my throat, and I effortlessly begin to push myself very hard to come up with the most and best ideas.  Or with art, I push myself so very hard.  This is how I prove my worth, to others, and ultimately to myself.
+
+I don’t even realize I’m doing this.  It’s my brain striving for balance.  I worry I don’t do enough in the areas of life that I hate, so I work extra hard in the areas I love.  I did this as a kid as well.  I hated doing English homework, so I stayed very busy with art and design, so much so that my vice principle excused me from attending English class, as long as I kept my grade up.  I got a C.  
+
+Always the bare minimum in some areas of life, in order to achieve the absolute maximum in other areas.

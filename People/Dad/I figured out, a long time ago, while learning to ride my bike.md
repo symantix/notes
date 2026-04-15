@@ -1,0 +1,1 @@
+I figured out, a long time ago, while learning to ride my bike, that if I kept my eye on the road just ahead of me, I would lose my balance every time.  The only way to keep my balance, was to focus much further ahead.

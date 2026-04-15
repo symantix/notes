@@ -1,0 +1,1 @@
+My dogs spend most of their day looking for dirt to eat.  We feed them a bit more than their veterinarian-recommended daily portion, especially when you include treats.  They have made a hobby out of finding and eating dirt.  They prefer poop, but they’ll settle for dirt.

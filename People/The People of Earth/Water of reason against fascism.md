@@ -1,0 +1,1 @@
+The water of reason is the enemy of fascism, and nothing can defeat it.  A splash of violence is the fool's answer, but it only helps the water reach further into the depths of the earth.

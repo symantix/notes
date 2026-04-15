@@ -1,0 +1,1 @@
+One of the pranks could be T&T dressed as aliens, crawling all over Kikay's ship.  He comes out at night and catches them.  They are in disguises, but it's obvious that it's them.  He shines a light on them.  They freeze for a moment or two.  Then one of them screams, "YOU'LL NEVER ACHIEVE WARP SPEED!", as they both skitter off.

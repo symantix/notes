@@ -1,0 +1,3 @@
+The New Alpha, is a man who grew up in the last quarter of the 20th century, learning that violence and bullying is wrong.  They are peaceful people, but they still have anger and control issues, because the alphas from the generation before them were mostly violent bullies who imposed their will upon this new breed.  They are good at leading and pushing people to their limits, but they do not accept such leadership well when expressed in the extreme, i.e. they can push, but struggle to accept a push from anyone from their own generation.  They do tend to accept leadership well from their elders, however.
+
+Perhaps the next generation of leaders will have everything that this one has, with a little less anger, a little less edge.

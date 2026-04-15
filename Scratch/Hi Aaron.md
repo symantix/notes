@@ -1,0 +1,1 @@
+Hi Aaron!  I hope you've had a great week so far.  I just wanted to follow up with you about the new project that you were going to hand off to me.  How is that coming?  Last week I worked on Schoolahoop the whole week because Certell was in the middle of being handed off to Aaron T and reorganized.  I'll check in with him and see if I can jump on an issue or two this week.

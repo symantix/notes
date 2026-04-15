@@ -1,0 +1,3 @@
+Best Part of AT&T
+
+Just before getting off the phone with me a few days ago, an AT&T support technician told me, "You're the best part of AT&T".  This was a real honor for me guys.  I've never been told that I'm the best part of anything.  So I stopped him before he hung up, thanked him, and asked him if he meant that collectively, or if I, Joey Livingston, was actually the best part.  He explained that without me, AT&T would not be the great company that they are today.  I told him thank you, and explained to him that my neighbor was also an AT&T customer, and that she is a total ass hole, and that I was really looking forward to rubbing this in her face.

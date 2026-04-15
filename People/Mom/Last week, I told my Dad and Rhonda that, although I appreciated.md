@@ -1,0 +1,1 @@
+Last week, I told my Dad and Rhonda that, although I appreciated their points about the election, I found them difficult to listen to, because I don’t feel that they are being balanced or fair with both sides.

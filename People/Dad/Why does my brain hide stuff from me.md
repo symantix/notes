@@ -1,0 +1,5 @@
+Why does my brain hide stuff from me?  Like the other day, I heard this ad about a podcast festival, where you could go and meet some of the hosts of your favorite podcasts, and watch their shows live.  And I kinda mentally shrugged, and thought to myself, that sounds really cool, but I'm focused on making my own content right now.  I don't really have time for that kind of thing.  And then I caught myself, and realized that the only reasons that are actually keeping me from that concert, are work obligations at a job I'm not crazy about, and being poor.  That was the honest answer.  The first notions had nothing to do with me not going, because I would go in a heartbeat if I could.  
+
+And if I think about that too long, I start getting a bit sad inside.  As I was writing this, my eyes  teared up just a tiny bit.
+
+So maybe that's why.

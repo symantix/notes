@@ -1,0 +1,1 @@
+It worries me that I don’t spend nearly as much time with my daughter as I do with my son.  I console myself with the thought that she spends time with her mom and does Girl Scouts. I hope that’s enough.

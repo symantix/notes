@@ -1,0 +1,1 @@
+This analogy is really forced.  If you don’t work, you shouldn’t eat.  That’s a Jewish principle, and yet the Jews believe in caring for the poor, of body or mind.  Capitalism at its best, in practice, simply trades work basic needs, at minimum.

@@ -1,0 +1,1 @@
+On several occasions throughout our lives together, I have told you, I’m so many words, that I wish we knew each other better.  And what I have often heard in return is, “I don’t want to know you.”

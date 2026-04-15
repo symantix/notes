@@ -1,0 +1,3 @@
+You need to stop trying to be larger than life.  I run your shows, you run mine.  I get to say your name and fuss at you when you're running my show, and you can say whatever you want to me, whatever suits you, when you're running my show. This will be our on-air personas.
+
+Also, I can see by the look in your eye that you take some of the things I say to you on air personally.  Please don't, and please feel free to fight back.  Remember when you used to tease me when I first started working carpentry with you, and all the joking you and Rick did?  You were so funny, so exciting.  Then you get on the air, and you tell jokes like you're sitting in the British parliament.

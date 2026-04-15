@@ -1,0 +1,1 @@
+A kid with no limbs. In the space travel episodes, he has advanced tech to make up for it.

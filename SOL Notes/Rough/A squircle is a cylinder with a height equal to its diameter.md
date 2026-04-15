@@ -1,0 +1,1 @@
+A squircle is a cylinder with a height equal to its diameter.

@@ -1,0 +1,3 @@
+The story from tonight, when Mo was trying to explain a thriller she was watching, and couldn't get herself to say the word "killer", as if it was taboo.
+
+This is how sweet my wife is...

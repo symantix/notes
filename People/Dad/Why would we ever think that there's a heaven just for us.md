@@ -1,0 +1,1 @@
+ Why would we ever think that there's a heaven just for us?  We're just dumb animals with big imaginations. 

@@ -1,0 +1,1 @@
+Am I finite?  Is the universe infinite?  If I am finite, then does it matter?  Aren't I still a human being living in a finite universe?

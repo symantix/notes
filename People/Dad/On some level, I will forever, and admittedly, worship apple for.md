@@ -1,0 +1,1 @@
+On some level, I will forever, and admittedly, worship apple for what they did with the iPad Pro.  I knew they were great, and sometimes I wondered what it would be like if apple tackled the art tech industry.  But I always dismissed the thoughts as fantasy.  This tablet is everything that I've ever wanted in a digital art device.  Everything.

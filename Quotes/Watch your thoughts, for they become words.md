@@ -1,0 +1,7 @@
+Watch your thoughts, for they become words.
+Watch your words, for they become actions.
+Watch your actions, for they become habits.
+Watch your habits, for they become your character.
+And watch your character, for it becomes your destiny.
+
+― Margaret Thatcher (and others)

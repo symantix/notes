@@ -1,0 +1,1 @@
+I think the part of me that spots good opportunities in career and investment, is the same part of me that spoke to me when my little brother offered me some potato chips, and I thought to myself, you could take a chip and say thank you, or, you could crush the chips and say thank you.

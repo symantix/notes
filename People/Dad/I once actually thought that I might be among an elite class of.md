@@ -1,0 +1,7 @@
+I once actually thought that I might be among an elite class of programmers.  I once thought that I could handle a level of pressure that perhaps only a few could match. Working at an ambitious New York based company taught me a truth about my limitations, one that I am happy to admit in order to save my sanity, my family, and my dreams. And that truth is that I am an artist, and I have always been an artist, from the moment I was conceived. I am at my best in low pressure.  I was never meant for the world of business, for the rewards of capitalism.  Programming was only ever a means to provide a certain measure of comfort to my family, while they existed in my world of imagination, unsupported by the framework of our society, and otherwise impoverished were it not for this tool, this job.
+
+My dad did his best to build houses, and he was a good carpenter. But he was never a master architect, and he was never intended to build skyscrapers. He was intended to free minds from bondages and biases.
+
+I am the son of the second coming of Christ. This time he came and lived his life somewhat unnoticed, at least so far.  Whether his death will have any global impact, I cannot yet say.  All I can say with confidence so far, is that his life has been a work of art, with myself as one of the few observers, a work of art that has changed my own life forever.
+
+The purpose of my own life is not yet clear to me. Perhaps I am already carrying that purpose out just fine.  Perhaps knowing is not required for doing.

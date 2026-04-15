@@ -1,0 +1,1 @@
+Developed a mechanism for setting a redirect URL abstractly from the navigation, so that a person logging in from the results page, and land on the results page after logging in.

@@ -1,0 +1,1 @@
+We need an Oracle, the kind that throws bones and leave and maybe something new and original

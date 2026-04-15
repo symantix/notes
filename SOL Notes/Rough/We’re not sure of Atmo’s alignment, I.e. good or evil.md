@@ -1,0 +1,1 @@
+We’re not sure of Atmo’s alignment, I.e. good or evil.  This should probably remain in an unknown state.  Sometimes it seems to be slowly going off the deep end, but seems to recover in the last moment, or perhaps even it’s final action reframes the previous ones, and we see we have misunderstood, or assumed too much, as do the other characters .

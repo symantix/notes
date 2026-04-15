@@ -1,0 +1,1 @@
+Oh nice.  The Xbox One is my son’s, and he keeps it in his room.  The family console is a switch.  You should definitely grab one.

@@ -1,0 +1,1 @@
+Before these kids actually go into space (if they do), they will be exploring all kinds of alien places here on earth, sometimes in their own neighborhood.  Maybe one of the kids should address this in some sort of monologue, maybe just before their actual launch, as part of some send off.  Or maybe it’s a meditative moment the night before.

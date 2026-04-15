@@ -1,0 +1,1 @@
+"The road to success is dotted with many tempting parking spaces." - Will Rogers

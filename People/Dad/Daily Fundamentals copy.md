@@ -1,0 +1,4 @@
+Daily Fundamentals:
+I'm attempting to challenge your behavior  by educating you in a manner so that the facts truly inspire you more than our narrative driven ideologies. For if we continue to believe our beliefs for belief sake, our shared knowledge will build nothing more than a feedlot for the herd. However, if I can get you to cross a bridge of discovery, what is emerging from facts will inspire you to better your being. In other words, we have lived long enough in the desert of waterless faith which does nothing but keep us thirsty. It's time for doxastic faith: one without a doctrine of pretense, but one that is fact based and fuels compassion, honesty & a better you. 
+Let's do coffee,
+michael w. jones

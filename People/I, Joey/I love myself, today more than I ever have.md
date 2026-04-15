@@ -1,0 +1,1 @@
+I love myself, today more than I ever have.  I don’t think I ever really hated myself, but maybe, or maybe close.  I still think parts of me need some attention and healing.  Namely, Mr. Pornography Lover, Mr. Hermit, and Mr. Sloth.  I think if those guys would shape up and change their ways, everyone else would fall in line with ease.

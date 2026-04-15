@@ -1,0 +1,1 @@
+Racists need to shut the hell up, stop lying, stop causing evil.  Hiring people based on the color of their skin is racist.  Opposing that philosophy, in today’s climate, is courageous. 🇺🇸

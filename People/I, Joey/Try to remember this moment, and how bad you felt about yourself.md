@@ -1,0 +1,3 @@
+Try to remember this moment, and how bad you felt about yourself.  You should love yourself, and you should also like yourself.  And that means demonstrating the kind of love and respect that you wish to see in the world around you.  The next time you come to a decision that you know you will regret, try to remember this moment, right now, and how poorly you felt about yourself.  We are all more than any single moment, but let’s move quickly to a place where all of our decisions sing in harmony.
+
+You have a lot to accomplish in this life.  Stop wasting time.

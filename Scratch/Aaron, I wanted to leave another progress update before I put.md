@@ -1,0 +1,7 @@
+Aaron, I wanted to leave another progress update before I put this task down for the week, as I need to give some attention to other projects.
+
+As mentioned in my last report, SSO login/logout is in place from certell.org => ebooks.certell.org.  While continuing development this week, I've also continued to test this new functionality, and it is working consistently.  I pushed up a branch called feat/SSO, and added a pull request, if you want to merge this to master.
+
+I've been working on the same functionality in reverse, i.e. ebooks.certell.org => certell.org.  I'm running into similar challenges with this work as I did last week.  I setup a URL to hit on certell.org in order to logout remotely, and when I hit it directly, it works fine.  However, when I hit it through an iframe on ebooks, while certell.org appears to be logged out within that iframe, when I go to the site directly, I am not logged out.  This leads me to believe that some sort of caching is occurring within the iframe.  Investigation revealed that next server running on certell.org was in fact imposing a pre-rendered state on the iframe, but removing that did not resolve the issue.  
+
+I'm continuing this investigation, but as of now, the logout functionality from ebooks => certell.org is still in progress.  I haven't begun the work for the login functionality, but I expect it to require more time than the logout functionality does, because I don't think that certell.org uses the same token functionality for logging in that ebooks does.

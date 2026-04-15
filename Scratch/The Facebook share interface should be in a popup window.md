@@ -1,0 +1,17 @@
+- The share section looks larger than it is in the mockup:
+- Facebook Sharing
+	- When I click the Facebook share button, it opens in the same  tab with a full window view, and the interface looks really awkward.  https://developers.facebook.com/docs/sharing/reference/send-dialog  The Facebook share interface should be in a new popup window, sized to suit the compact interface.
+	- The image in the share dialogue should be the blog header.  The only being used now is the default image when the home pages is shared.
+	- The title in the formatted link is the default site title.  It should be the title of the blog post.
+- Twitter Sharing
+	- The link should not have "www" in it, should just be https://schoolahoop.org/...  Please check all links in share interface.
+	- Like the Facebook sharing, this opens in the same window.  This should open in a new popup window, sized small enough to show only the sharing interface.
+- Email Sharing
+	- Please remove "Link to blog post:" and the extra line below it.  
+	- @Jake, just confirming what Kevin & Jarrod have already mentioned:  We can't put HTML into a mailto link, which is what would be required to make the title clickable.  It has to be plain text.  So we can insert the link literally, but the title itself cannot be linked, as required in the ticket description.
+- Copy Link
+	- As Jake mentioned, we need a copied indication.  Here's a simple suggestion.
+
+- Mobile
+	- The share button at the top should change the state of the mouse when hovering, like a link, i.e. cursor: pointer;
+	- Icon colors and size, and all font sizes, do not match the mockup.

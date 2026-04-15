@@ -1,0 +1,3 @@
+Jesus claimed to be the Son of God while standing in from of the Jews.  Though he knew that he meant much more than just the Son of Jehovah, he also knew what they thought, and yet issued no correction or clarification.  
+
+That very short statement is a confession that means a lot to me.  It reduces me to my earliest memories, and confesses that, whatever I am now, this is where I came from, and it still has great meaning to me.  The specifics of what exactly I mean must be teased out from the rest of my writings, and whatever else I have put into the world to indicate who I am.  But the confession itself is perfect, just as it was perfect when Jesus said “I am that I am”.  If you’d still like to help me improve it, I still welcome your input, but I doubt it can be.

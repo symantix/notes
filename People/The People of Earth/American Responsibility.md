@@ -1,0 +1,3 @@
+I am an American citizen.  I have kept my driver’s license and social security card in my wallet all my life.  I have had my birth certificate under my bed for my entire adult life.  If I were to lose it, I would immediately work on getting a new one.  
+
+These are all small burdens, but I understand why they are necessary.  I expect every citizen and immigrant to be held to the same standard of responsibility.

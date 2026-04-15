@@ -1,0 +1,5 @@
+You said something that was very low faith the other day.  You told me that my vote didn’t make a difference.  I’m not mad, I wasn’t hurt.  I was happy to be talking to you.  But I was thinking about it this morning, and I wanted to check in with you, make sure you were just having a moment, and offer  some encouragement.  
+
+It’s as simple as this, Son, and it’s the reason why the 1st amendment is the most important one:  If you express yourself in this world, you will make a difference.  It’s far more than mere chance.  And the more you express yourself, and the more truthfully you express yourself, the bigger the difference you will make.  If you don’t express yourself, it will be like the perfect dive into a still pool:  no ripples at all.
+
+This is why we must work, why we must speak, and why we must stand for what is right.

@@ -1,0 +1,1 @@
+It’s okay to want to want something.  There are no typos in that statement.  And we should be honest with ourselves about what we want to want.  Not what we actually want, but what we wish that we wanted.  This is how we become better people.

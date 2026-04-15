@@ -1,0 +1,1 @@
+I recently figured out that I am one of those beautiful people that doesn’t realize how beautiful they are.  One of those very likable people who feels like nobody really likes them.  I always saw those people, and thought they were tragic.  I need to figure out how to stop being one.

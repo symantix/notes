@@ -1,0 +1,1 @@
+What if the ships are made of ridiculous things like wood and tires?  What they all really know nothing about ship building.  It would give away some of the mystery, perhaps, but it would also be pretty amazing.

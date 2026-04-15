@@ -1,0 +1,1 @@
+What if all of the characters in this story, even and especially the villains, turn out to have a tragic backstory, that goes back to when they were children.  What if it almost sounds like they are human children, so much so that we are reminded that these children might simply be pretending.

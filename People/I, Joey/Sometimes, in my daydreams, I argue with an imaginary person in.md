@@ -1,0 +1,1 @@
+Sometimes, in my daydreams, I argue with an imaginary person in my head, over some issue I'm thinking about.  This person is the most difficult, disagreeable person I have ever met, inside or outside of my head.  I don't even like them.  They cause me actual anxiety.  But they do offer me a different viewpoint from my own.

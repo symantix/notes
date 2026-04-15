@@ -1,0 +1,1 @@
+Minority Report taught me, quite effectively, not to arrest people for crimes they haven't committed yet.  That sometimes assumptions are correct, even many times in some situations.  But the few times we are wrong, the price that it costs those affected, is far too high to ever justify acting on our precognitive impulses in the first place.

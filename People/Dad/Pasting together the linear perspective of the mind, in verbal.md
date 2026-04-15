@@ -1,0 +1,1 @@
+Pasting together the linear perspective of the mind, in verbal form, is not a linear process.

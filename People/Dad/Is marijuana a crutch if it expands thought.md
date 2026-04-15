@@ -1,0 +1,1 @@
+If marijuana expands consciousness and opens new and productive paths of thought for even the most mentally stable human being, then why must it automatically be considered a crutch?  Or do you disagree with the premise?

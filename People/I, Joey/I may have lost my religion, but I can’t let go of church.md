@@ -1,0 +1,3 @@
+I may have lost my religion, but I can’t let go of church. I may not instist that my closest friends dedicate their life to God, but I do insist that they dedicate their life to Community, and to the Highest Ideal, the Process, the Discussion, the Philosophy, the Growth, the Outreach, the Generosity, the Patience.
+
+I am the Executive Producer of NCG Studios, a proud member of 20+ years, and a charitable donor for exactly as long.  They are dedicated to a process, not a conclusion, the worthiest of ideals.  When I am lost, I know how to find my center, because it has a geographic location.

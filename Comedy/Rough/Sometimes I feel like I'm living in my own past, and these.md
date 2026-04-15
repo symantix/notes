@@ -1,0 +1,1 @@
+Sometimes I feel like I'm living in my own past, and these moments with my children are just the dreams of an old man.  And sometimes, mere moments after my children are gone, it feels like they were just a ghost, and I miss them deeply.

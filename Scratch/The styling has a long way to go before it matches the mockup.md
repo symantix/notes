@@ -1,0 +1,5 @@
+Feedback for Fabricio
+
+Hi Fabricio.  Just wanted to send you some feedback on the tooltip task before the weekend.  The styling has a long way to go before it matches the mockup.  At a quick glance, the text should be left-aligned, the pointer/arrow on the left side should be white, the pointer shape doesn’t look right on mobile, there should be more margin around the copy, the drop-shadow should be softer and more spread out, some of the text colors don’t match, etc.  There may be other issues, but this is too far away from the mark to be critically reviewed by the team at this point.  
+
+Unfortunately, we have a critical deadline to meet on our priority tasks, so I'm going to re-assign this task.  For now, hold off on grabbing any other tasks out of the queue.  Someone will follow up with you soon about how we're going to move forward.  In the mean time, I'm sure the learning curve on some of this has been a bit stressful, so enjoy a relaxing weekend.

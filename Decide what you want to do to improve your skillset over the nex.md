@@ -1,0 +1,6 @@
+- Decide what you want to do to improve your skillset over the next 6 months
+- Critique
+	- Systems architecture, future proofing, tech debt
+	- Innovation
+	- Other ideas, other projects
+- Public discussion system

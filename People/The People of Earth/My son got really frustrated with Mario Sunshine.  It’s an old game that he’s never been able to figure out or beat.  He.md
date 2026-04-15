@@ -1,0 +1,12 @@
+My son got really frustrated with Mario Sunshine.  It’s an old game that he’s never been able to figure out or beat.  He says that most kids in online discussions  feel the same way, it’s the worst Mario game.  He can’t figure out how to beat even the easiest bosses.  So I played it once.  There’s toxic mud all over the ground, and you have a water jet pack to clean the mud out of your path.  He told me to use the Jetpack to go up a hill and wake up the boss.  Then he told me to run back down the hill and shoot at the boss, who was flying around in the sky.  While I was shooting the boss, I tripped in all the toxic mud.  Smaller enemies also attacked me while I was aiming at the boss.  I died pretty quickly.
+
+“See?” he said, “It’s too hard.”
+
+I gave him the Nintendo back.  “Clean up the mud all over the yard and kill all the smaller enemies before you wake up the boss.”
+
+It was like a bolt of lightning hit him.  This hadn’t even occurred to my son.  So he did just that, and killed the boss on the first try.  
+
+The one time that Nintendo tries to teach our children to clean up their own mess before starting the fight, and it’s the most unpopular and hated Mario game in Nintendo history.
+
+
+#POSTED 

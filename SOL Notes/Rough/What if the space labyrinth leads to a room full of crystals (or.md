@@ -1,0 +1,1 @@
+What if the space labyrinth leads to a room full of crystals (or something).  It becomes clear, through runes or something, that taking ahold of a stone will grant the holder immortality, perhaps at a great cost.  Only a few of them decide to lay hold of them.

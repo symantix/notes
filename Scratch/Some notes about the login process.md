@@ -1,0 +1,3 @@
+A note about the login process:
+
+The mockups indicate a specific message for when the email address is wrong, and when the password is wrong.  Being this specific is a security risk.  For example, if there is a password error, but not email error, then an intruder now knows one piece of the puzzle, and is now 50% closer to breaking in.  Even the error from Auth0 is vague, which makes specific errors impossible.  Presently, we are displaying an error that is just as vague, indicating that the login was not possible, and that the user should review the info they submitted.

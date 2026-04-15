@@ -1,0 +1,3 @@
+Art that is beautiful for its detail, is accomplished in the same way that a grandmother quilts a blanket.  It is a ritual, sometimes mindless, usually zen, a place of transcendent thought.  It requires great patience, and a disregard for the passage of time.  There are few shortcuts here.  If you are not patient, then learn an impatient style.  Art that is beautiful for its simplicity, for example, can be accomplished quickly.  But never try to accomplish detail with impatience, nor a quick sketch slowly.  Both are beautiful, both are worthy.
+
+Can this be worked into a dialogue with punchlines?

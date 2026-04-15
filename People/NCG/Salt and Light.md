@@ -1,0 +1,8 @@
+Salt and Light
+“You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet.
+
+“You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven.“
+
+Matthew 5:13-16
+
+Jesus was in his early thirties when he said this.  He obviously didn’t know much about how many times a person can rise after falling.  The answer is simply, as many times as they want too.  Not many things are left completely to the power of our own free will, but this matter simply is.  Jesus’ salt metaphor works better as a cooking tip, because salt loses its saltiness when you cook or mix it too much into your food, and it will never be salty again.  Good tip, and one that will help lower your sodium intake as well.  But as a metaphor for human beings, these are nothing more than the words of a young man who is determined to walk a perfect path.  And more power to him.  As for the rest of us, if you lose your excitement for an abundant life, if the light of your life begins to go dim, just recognize the problem and fix it.  Seek more salt for your life, more light for your world.  Find a place with others, where the necessities for abundant life flow freely. Soon you will have plenty to share with your friends again.

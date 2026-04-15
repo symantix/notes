@@ -1,0 +1,1 @@
+The trust of your people is Samson’s hair.

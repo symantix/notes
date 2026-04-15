@@ -1,0 +1,1 @@
+Imagine the one person on this earth who has the greatest reputation for kindness and love toward all mankind.  Now imagine that they point a gun at your head and say “love me, or else”.  This person, who is the easiest of all to love, demands that you do so.  

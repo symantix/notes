@@ -1,0 +1,1 @@
+What if the kids argue/fight over who gets to be captain, and end up taking turns.

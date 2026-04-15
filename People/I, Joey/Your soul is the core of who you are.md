@@ -1,0 +1,1 @@
+Your soul is the core of who you are.  And that’s what it means to sell your soul, I.e. to do something that is in complete contradiction to who you are at your core.  For example, if you are someone who values honesty, and you decide to do something that will make you a lot of money, but you have to lie to someone that you respect, that is selling your soul.

@@ -1,0 +1,3 @@
+Just an update:  Among our goals this week, was to onboard Lincoln Policy today, as a test case.  I'm happy to report that Jarrod's platform was able to backup the majority of their website this afternoon.  This test exposed some memory issues that will be address asap, and we'll run a follow up test afterward.  We also faced a new challenge with Lincoln Policy's website, because they have no sitemap (this is an issue that desperately needs to be resolved, btw, if only for the SEO benefits).  We were able to generate an independent sitemap file, which Jarrod uploaded and processed.
+
+Thanks to Jarrod, for all of his incredible work in getting this platform up and running in such short order!

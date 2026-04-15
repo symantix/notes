@@ -1,0 +1,1 @@
+Scene where the Syxe crew is lined up like a military troop, standing at attention, and Sheila is marching back and forth, yelling at them.

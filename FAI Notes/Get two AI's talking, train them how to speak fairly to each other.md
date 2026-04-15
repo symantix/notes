@@ -1,0 +1,1 @@
+Get two AI's talking, train them how to speak fairly to each other

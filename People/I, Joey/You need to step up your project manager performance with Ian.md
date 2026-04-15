@@ -1,0 +1,1 @@
+You need to step up your project manager performance with Ian.  Open a spreadsheet every time you speak.  Try to break down conversation into task as you speak.  Explain to him your reasons for not taking notes.  Allow him to take a higher level view of your projects, which may in theory make your ventures more profitable.

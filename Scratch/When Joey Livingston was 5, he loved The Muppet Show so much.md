@@ -1,0 +1,5 @@
+When Joey was 5, he loved The Muppet Show so much, that he learned to grasp the very concept of time itself, by asking people to convert minutes into Muppet Shows for him.  Jim Henson was the second person whose death Joey ever had to face, after his great grandmother.  He wept over them both.
+
+When Joey was 13, he discovered Calvin & Hobbes, and fell truly in love with the elegant ink work of Bill Watterson.  In the years that followed, he plunged into other comic books and graphic novels, and studied many artists who are considered to be legends today, like Jim Lee, Todd McFarlane, Marc Silvestri, and others.  It was during this era that Joey dreamt of one day telling a story of his own through this magical medium.
+
+More than a decade ago, Joey realized that he was never going to achieve his dream, unless he could conceive of a single inspiring idea from which to begin.  So after many sketches and writing attempts, Sliver of Light was born.  He has worked in his spare time since then, almost every day in the more recent years, to bring this project into a fully developed state.

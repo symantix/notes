@@ -1,0 +1,1 @@
+Not every husband is the leader of his household, nor every wife the guardian.

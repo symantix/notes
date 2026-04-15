@@ -1,0 +1,1 @@
+Don’t just bow to what you perceive to be the inevitable.  Fight.  Fight the inevitable.

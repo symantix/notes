@@ -1,0 +1,3 @@
+Son’s First Sketch Book
+
+When my son was four, I bought a very special Christmas present for him: his first sketchbook. He's been showing a lot of artistic prowess, so I felt it was time. When he opened it, I called him over and gently explained to him why it was special: that it was like daddy's sketchbook, and that he could draw in it, and fill it with his work and memories, and he could keep it all together and look back on it as he filled it up. When I was done, he turned around, farted on me, and said, "Here daddy, smell that. That's for you". I love you too son. I love you too.

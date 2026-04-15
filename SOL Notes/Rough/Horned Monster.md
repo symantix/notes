@@ -1,0 +1,3 @@
+Kids encounter a monster in the darkness, who appears to be stalking them.  In the first encounter, their cat suddenly becomes alarmed at something the bushes.  Tiber thinks nothing of it, pinches the cat and snorts.  The cat flips out and the kids laugh.  The cat charges into the bushes, and chases off what appears to be a monster with large horns.  Kids are stunned, Tiber eventually says “good girl.”
+
+Later turns out to be a big kid who got a Viking helmet from his dad.

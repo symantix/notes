@@ -1,0 +1,1 @@
+A character named "Dogmatic Dog". He's a dog, and he's really dogmatic about stuff.

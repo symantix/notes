@@ -1,0 +1,6 @@
+- Star Trek
+- Schoolahoop ordeal from my perspective
+- AI safety 
+- AI copyright law
+- Art & Design history
+- Comic books

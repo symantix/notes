@@ -1,0 +1,3 @@
+This is coming our way soon, if we don’t start actively defending the right of every American citizen to speak their mind, especially if we don’t like what they have to say, even if we think it’s hate speech.  Government censorship systems can be used against anyone.  Anyone.  Not just your enemies.
+
+This country was founded on the principle that the best way to fight is with words, not fists or guns.  If you take away my right to speak freely, you take away your own as well.  You can’t stifle people’s ability to speak their minds, without severe long-term consequences.  When you take away the ability to speak freely, the fighting doesn’t just stop.  It escalates.

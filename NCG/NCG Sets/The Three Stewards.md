@@ -1,0 +1,3 @@
+There’s a story in the Bible about three stewards of some money.  The first and second do something to invest and expand.  The third hides the money so that there’s no chance that it will her lost. The first two are rewarded for their enginuity.  The third basically loses his job, as well as any financial rewards or income.
+
+We must endeavor to expand financially.  It’s not enough just to scrape and store away our resources for another day.  Like salmon swimming upstream, if all we strive for is to keep ourselves from flowing down the river, we will eventually grow tired, and be swept away by the very current that we feared.  We must better our homes and our community.  We must use our resources to create better pathways for future resources

@@ -1,0 +1,1 @@
+I was taught by religion not to crave new experiences, to always be content with what I have.  This played a big role in suppressing my imagination for many years.

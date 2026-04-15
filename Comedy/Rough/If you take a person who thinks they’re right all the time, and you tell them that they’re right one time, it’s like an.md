@@ -1,0 +1,1 @@
+If you take a person who thinks they’re right all the time, and you tell them that they’re right one time, it’s like an affirmation from the gods for them.  Don’t do it.

@@ -1,0 +1,3 @@
+Its time to admit that without a significant amount of linguistic simplification, it's going to be impossible to reach a broader audience.  You say that you know exactly what you want to say to people, and that you're tired of fighting people about what to say and how to say it.  But what will your uncompromising approach amount to if no one remembers you?
+
+Maybe what you said to me, is true for both of us: that there comes a time to accept the things you cannot change.  If you want broader society to remember what you said, you might need to simplify the way you say it.  Simplicity and conciseness earns the respect of the people, and demonstrates that you can be trusted with their time.

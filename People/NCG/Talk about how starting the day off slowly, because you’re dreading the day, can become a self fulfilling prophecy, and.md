@@ -1,0 +1,1 @@
+Talk about how starting the day off slowly, because you’re dreading the day, can become a self fulfilling prophecy, and how going into the day with expediency and intention can have a likewise effect.

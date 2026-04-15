@@ -1,0 +1,46 @@
+Favorite Foods
+
+- Spicy Egg Salad w toast or chips
+	- 2 eggs 
+	- 2 sausage on the side
+- Pizza
+- Apple
+- Orange
+- Roasted carrots
+- Grits & Eggs
+	- Grits
+	- 2 eggs sunny-side up (1 in grits)
+	- 1 toast
+	- 4 bacon (1 in grits)
+- Steak
+- Chicken with wing sauce
+- Sushi
+- Chow mai fun
+- Stuffed mushrooms
+- PB&J
+- Popcorn
+- Crackers & American cheese
+- Breakfast burritos
+- McD BEC bagel
+- McD SEC muffin
+- Cracklin Oat Bran
+- Raisin Bran
+- Chips & Salsa
+- Chicken Chow Mein
+- Egg Drop Soup
+- Fried rice
+- Chili
+- Guy’s BBQ Chips
+- Seaweed snacks
+- Mama Din Din veggie ramen
+- Taco Bell
+- Pan-fried, grilled, or blackened shrimp 
+- Crab claws
+- Hamburger
+- Wendy’s chicken sandwich
+- Fried okra
+- Fried catfish
+- Grilled fish
+- Fried fish
+- Baked oysters
+- Pot Roast w potatoes, onions, gravy, and lots of carrots

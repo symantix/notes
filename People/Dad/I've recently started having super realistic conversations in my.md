@@ -1,0 +1,1 @@
+I've recently started having super realistic conversations in my head, with my actual friends.  At first I thought I might be going a little crazy, and I probably am.  But then it hit me, isn't this just praying?

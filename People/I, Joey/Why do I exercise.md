@@ -1,0 +1,1 @@
+Why do I exercise?  Because I have forces that are battling against me from without and within, and I’m just trying to stay alive.

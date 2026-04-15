@@ -1,0 +1,1 @@
+We need a sense of girl/Boy Scouts in whatever evolves from kikays team.  Maybe even call them something, like space scouts, or 

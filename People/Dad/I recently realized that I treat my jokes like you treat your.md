@@ -1,0 +1,1 @@
+I recently realized that I treat my jokes like you treat your teachings; I usually don’t pull them out until they’ve been sitting around a while.

@@ -1,0 +1,1 @@
+Giants who roam the same planet as our protagonists (when they are on that planet).  The giants are, as far as we can tell, completely unaware of our protagonists’ existence.

@@ -1,0 +1,1 @@
+Stop thinking of comedy as funny.  Stop thinking of standup as a series of jokes.  Instead, think like a video editor.  A comedy routine should be an intelligent conglomeration of several of your thoughts, performed in whatever way you see fit, as a speech, as a play, as a joke, as a song.

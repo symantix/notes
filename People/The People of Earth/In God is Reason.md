@@ -1,0 +1,1 @@
+In God is Reason.  Reason is with God.  Reason is a part of God.  It has always been this way.  Through Reason, all things were made, and without it, existence wouldn’t be possible.  Reason holds the secrets of life, and it lights the way for all mankind to find them.  And as we journey beyond the darkness, Reason brings enlightenment that cannot be overcome by darkness again.

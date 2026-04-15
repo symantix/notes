@@ -1,0 +1,1 @@
+Perhaps the pranks evolve into an actual organized tactical battle, which becomes preparation/training/foreshadowing for bigger things to come.

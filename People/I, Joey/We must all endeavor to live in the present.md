@@ -1,0 +1,1 @@
+We must all endeavor to live in the present. This is my biggest objection to ancient religion. The worst kind of living in the past, is when you're living in the past of another person, living in the past of ancient people.

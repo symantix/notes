@@ -1,0 +1,3 @@
+I'm alarmed that you guys didn't email me monthly billing receipts.  That policy leads to charging people recurring fees without their knowledge.  That doesn't feel good.  If that wasn't your intention, then perhaps you'll consider refunding some of what you've pulled from my account.  I haven't used your service in months, and thought I had cancelled it.  
+
+Thanks.  I do love your library, I just don't need it right now.

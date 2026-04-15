@@ -1,0 +1,1 @@
+You never passed the offering plate.  Or if you did, it was so rare.  You talked about giving, and what it would take to provide for the community-building process.  And that was rare.  And now we talk about it sometime amongst ourselves, and that is rare.  And sometimes we mention it on stage, and that is rare.  

@@ -1,0 +1,3 @@
+The Possibility of Being Wrong
+
+How many of you believed something when you were younger, with the fullest of certitude, but since that time, the years have shown you that you were in error?  How many of you have also taken from that experience, the valuable lesson that no matter how certain you may feel about something, no matter how sound you may think your reasoning is, it’s still possible, even today, that you’re wrong?

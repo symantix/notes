@@ -1,0 +1,1 @@
+When I asked Monica if she’d like a toe in the butt, early in our marriage, as I was discovering all of the new privileges that came with it.

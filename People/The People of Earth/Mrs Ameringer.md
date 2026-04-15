@@ -1,0 +1,5 @@
+Most of what makes my art worth anything, all of the fundamentals, I learned in elementary school. My art teacher was Mrs. Ameringer. She taught me how to draw a circle, and she taught me that if you can draw a circle, you can draw an ellipse, and if you can draw circles and ellipses, you can draw pretty much anything humanoid. Mrs. Ameringer also taught me techniques for drawing straight lines without a ruler, and 1, 2, and 3 point perspective, giving me the ability to draw almost everything else. And she taught me about the observable changes of objects as they move away from your point of view, which opened the world of realism. And she taught me about light and shadow, primary and secondary colors, complimentary colors, principles of mixing and blending. 
+
+Thank you, Mrs. Ameringer! 
+
+#AAA 

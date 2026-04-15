@@ -1,0 +1,7 @@
+.DS_Store
+.cursor/
+.obsidian/workspace*.json
+.obsidian/cache/
+.obsidian/workspace-mobile*.json
+
+.smart-env/

@@ -1,0 +1,6 @@
+The problem with risky life changes for adult humans, is that the consequences of those changes effect the ones we love and support, not just us. That's why most people take all their risks when they are young and single. When you wed and have family, your animal instinct is to build a predictable system of support, because we all want to know and control the future.
+
+For those of us who have loving families, but who also realize that the path they are on is not a path they were ever meant to follow, our choices are clear:
+
+* We could abandon our family and destroy the lives of our closest loved ones, leaving our mind with an unhealable rift, an irreconcilable contradiction, which is this:  You saw a glimpse of heaven, and you wanted it, but you never considered the full picture of what that heaven looked like, or who you might want with you when you arrived.
+* We could remain with our family, and abandon all attempt to bend to societies demands, forfeit all reward, and completely switch gears in life.  And attempt to bring our family with us.  

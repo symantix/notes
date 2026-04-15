@@ -1,0 +1,1 @@
+The fallacy of the slippery slope in politics is that every shift in policy is a slippery slope.

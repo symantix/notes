@@ -1,0 +1,1 @@
+Rather than break your word, pay a penance, then perhaps you will make it to the other side of this trial.

@@ -1,0 +1,1 @@
+How long does it take to complete a thought?  Sometimes seconds, sometimes years. This is one reason why it’s so unfair to terminate a human life prematurely.  What if they were at odds with a choice their child made?  Now they will remain at odds forever.

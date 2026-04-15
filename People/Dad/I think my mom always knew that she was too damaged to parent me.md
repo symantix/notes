@@ -1,0 +1,1 @@
+I think my mom always knew that she was too damaged to parent me alone. We have a tribe, but she didn’t. So instead, she worked her ass off and made enough money to employ trained instructors to foster me in my talents.

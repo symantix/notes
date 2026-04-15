@@ -1,0 +1,94 @@
+Rewatchable Shows
+
+- Star Trek
+    - Original
+    - TNG
+    - DS9
+    - Voyager
+    - Discovery
+    - Picard
+    - Lower Decks
+    - Original movies
+    - TNG movies
+    - Chris Pine movies
+    - Strange New Worlds
+- Battlestar Galactica 2004
+	- Caprica
+- Childhood’s End
+- The Wire
+- Star Wars
+	- Mandalorian
+	- Boba Fett
+	- Andor 
+	- Obi Wan
+	- Original trilogy
+	- Prequels
+	- 7-9
+	- Solo
+	- Rogue One
+- The Expanse
+- Falling Skies
+- Mr. robot
+- Marvel Universe, series and movies, especially:
+	- Avengers
+	- Guardians of the Galaxy, 1-3
+- Alien Series
+- The Orville
+- Karate Kid
+- Kobra Kai
+- 12 Monkeys
+- Vikings
+- Tron
+- Jack Ryan series
+- Stranger Things
+- W/ Bob & David
+- The Office
+- Community
+- Detectorists
+- Boston Legal
+- West World, series
+- Peaky Blinders
+- Halt and Catch Fire
+- Dune 2020
+	- Part 1
+	- Part 2
+- The Boys
+- Ready Player One
+- Arrival
+- Interstellar
+- Punisher
+- 2001 Space Odyssey 
+- Ridiculousness 
+- Justified
+- Queen’s Gambit
+- Disenchantment
+- Free Guy
+- Marvelous Ms. Masel
+- The Bear
+- Blue Eye Samurai 
+- Bloodhounds
+- DP
+- Silo
+- Foundation 
+- Invasion
+- Freaks and Geeks
+- Shameless
+- Better Call Saul
+- Breaking Bad
+- Loudermilk
+- Parks and Recreation 
+- Brooklyn Nine Nine
+- Ted Lasso
+- Shrinking
+- Shogun
+- Labyrinth 
+
+Maybe
+- The Feed
+- Marco Polo
+- Game of Thrones
+- Utopia, Amazon original
+- Kim’s Convenience
+- Europa Report
+- Conan
+- Nashville 

@@ -1,0 +1,1 @@
+This game of life that we’re playing should really be called “Stampede”.  It’s all about how to change the direction of the herd in your favor.  The righteous accomplish this by siding with the truth and advancing it to its furthest most edge.  The villains do it by lying.

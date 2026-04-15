@@ -1,0 +1,1 @@
+Is it possible to create consciousness from nothing?  Does it arise from mere complexity, or is it imbued from an outside source?

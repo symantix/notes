@@ -1,0 +1,1 @@
+Kikay’s Dad is a preacher at a small church a couple of doors down from Kikay.  That’s where his dad lets him and his team build their spaceship.

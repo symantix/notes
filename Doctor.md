@@ -1,0 +1,7 @@
+- What's gonna happen to my BP meds when I get older?  It seems that they barely do the job.  Isn't this the max dose?  Will there come a time when even this isn't enough?
+- Stomach
+- Belly button
+- allergies
+- Hand stiffness and aches
+- Legs
+- Back

@@ -1,0 +1,1 @@
+I don’t know any better than anyone else, whether reincarnation is real or not.  All I know for sure is how I feel, and I feel like a new soul.

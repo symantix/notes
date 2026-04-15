@@ -1,0 +1,5 @@
+When you’re born, you know nothing, and then you’re plunged into this insane existence that we all supposedly share.  You’re going to misunderstand a lot of the shit you experience, and it’s really going to fuck with your head, and hold you back in life.  If you want to overcome the chains of insecurity, fear, anger, and everything else that’s holding you back, you’re going to need a ton of information, and you’re going to need to think about all of that information for a long time.  I’m barely even talking about books here.  Just look around you.  Observe all of nature, including people.  Embrace all of the other minds near you, and experience the world with them.  Talk about what you see.  Think about it all on your own.  Share your findings.  Make conclusions, but don’t allow any of them to be final.  Be open to others, even the very different, and listen to what they all have to say.  Make as many corrections as you can.  Get your head straight.
+
+The more you do this, the better you’ll feel.  The more you try, the freer you’ll be.
+
+The truth will set you free.

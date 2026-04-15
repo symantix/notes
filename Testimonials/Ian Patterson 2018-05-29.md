@@ -1,0 +1,1 @@
+Joey is great. He's skilled, diligent, and fun to work with on web development and illustration projects. He recently did a fairly challenging WordPress project for me that an agency had estimated would take 2-3 weeks and $5000. He did it in one week, at a fraction of the cost, and with excellent attention to design detail.

@@ -1,0 +1,1 @@
+Monica is going to an Alabama game tomorrow, won't be home until late afternoon at the earliest.  We could get together Sunday anytime after 1pm.  I'm also off Monday, so anytime then if you're off too.

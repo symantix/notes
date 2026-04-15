@@ -1,0 +1,1 @@
+I am disgusted with the Democratic Party.  I am disgusted with Trump.  I am disgusted with the Republican Party.  In that order.

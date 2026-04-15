@@ -1,0 +1,1 @@
+I’m just one human being, floating through space, trying to strike a balance with all the forces at play around me.

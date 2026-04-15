@@ -1,0 +1,3 @@
+I often don’t know, or at least am not willing to state, what I’m doing, what I’m committing to or how long, or what my intentions are.  This is because I don’t reach decisions in the same way that I did in my youth.  Sometimes I would commit and never look back.  My statements of intent came from promise and determination. Now, I often wait and reason, and when what I’m doing is clear, because I’m already doing it, I open my mouth, and my statement is one of description and clarification.
+
+Process over conclusion, reasoning over decision.

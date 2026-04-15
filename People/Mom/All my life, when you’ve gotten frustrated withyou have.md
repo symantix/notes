@@ -1,0 +1,1 @@
+All my life, when you’ve gotten frustrated with me, you have responded by hanging up, by ending the communication, and in some cases, at least for a while, the relationship.

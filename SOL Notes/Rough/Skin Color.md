@@ -1,0 +1,1 @@
+Play with all character’s skin color in different lighting 

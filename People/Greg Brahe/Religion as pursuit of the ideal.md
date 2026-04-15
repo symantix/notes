@@ -1,0 +1,1 @@
+Religion is the struggle to understand the ideal. The stories are not testable anymore than the details of ancient history, but the results can be tested by the outcomes of the culture that forms around it.

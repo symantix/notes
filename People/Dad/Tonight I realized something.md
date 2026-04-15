@@ -1,0 +1,1 @@
+Tonight I realized something.  I'm not completely sure it's true, but I think it is.  I expect little to nothing from most people.  Let me tell you, the world I live in is kind of sad.

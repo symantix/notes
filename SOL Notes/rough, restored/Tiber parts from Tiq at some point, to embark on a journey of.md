@@ -1,0 +1,1 @@
+Tiber parts from Tiq at some point, to embark on a journey of self discovery.  During that time, we go through the adventures of Tiq and other characters.  When Tiber returns (and we leave this in question until he does), we then flashback to some of his experiences.

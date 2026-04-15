@@ -1,0 +1,7 @@
+A short time back, I texted you this: “If you think that discussing [politics and religion] would hurt our relationship, try not discussing them.”  You responded with a heart.  That made me feel like you misunderstood me, so let me clarify:  I believe that closing off topics of disagreement has hurt our relationship far more than suffering through the discussion.  I still plan to talk to you about politics from time to time.  When that time comes, you can decide if you want to respond.  For now, I’m just beginning by clearing the air a bit.
+
+I’ve spent years trying to understand why we can’t get along beyond small talk.  A few years back, it finally dawned on me, and I realized it had been staring me in the face for a while.  It’s because you don’t like me.  You like some parody of me in your imagination.  But that’s not me.  Somehow you’ve managed to silence me over the years, maybe by calling me a liar repeatedly, maybe by telling me how sick of it you are, I’m not sure.  So your image of me is something you’ve imagined, based on our time together when I was a child, combined with some amalgamation of what you want me to be.  You don’t want me to speak my mind because you would have to face who I actually am.
+
+You asked me one day if I thought you had abused me by spanking me.  I told you no.  That was true, I didn’t think that.  But I do believe that gag orders are very harmful. 
+
+#sent 

@@ -1,0 +1,1 @@
+I often forget, in my quest for a kinder parenting style, that children need to be purged of their bad habits, choices, and behaviors.  Where is the balance?  I have achieved ultimate kindness, at least in many moments.  But this balance, this is the most difficult part.  How can I raise my children to be good human beings, without them finding fault in so many of my decisions?

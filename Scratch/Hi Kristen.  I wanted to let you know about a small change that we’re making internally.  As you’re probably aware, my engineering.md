@@ -1,0 +1,6 @@
+Hi Kristen.  I wanted to let you know about a small change that we’re making internally.  As you’re probably aware, my engineering schedule is constantly at odds with the needs of this project.  In fact, it was pure serendipity that I was hired just a week or so before your team started asking for an illustrator.  In any case, Lincoln hired me as an engineer, and there are projects that I work on, for which no one else is qualified, which makes it challenging to take a day out for illustration work, especially when there are impending deadlines.  This has caused frustration for your project as well, more than once.
+
+Consequently, I’ve been speaking internally with my engineering and general managers, about taking this job off of our team schedule, and allowing me to work on it on my weekends as a contract job.  This should mean a couple of positive things for this project.  First, it resolves the resourceing and scheduling issues, which means that I should be able to submit work sooner, allowing more time for review, feedback, etc.  And secondly, my direct rate for illustration work is $200/hr., so you’ll be saving a bit of cost on each illustration.
+
+
+Let me know what you need from me

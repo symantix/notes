@@ -1,0 +1,1 @@
+I forgive you for voting for Biden and Kamala.  They were destroying our country.  I forgive you for not seeing that.

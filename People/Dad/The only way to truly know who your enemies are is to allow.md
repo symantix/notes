@@ -1,0 +1,1 @@
+The only way to truly know who your enemies are is to allow yourself to be hit.  If you have your guard up **just in case** those around you are enemies, then you will never know who your friends are, or more appropriately **were**, because this defense mechanism will push them away.

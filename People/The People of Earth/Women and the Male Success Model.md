@@ -1,0 +1,1 @@
+The only way to look into the face of God and not lose your mind, is to have at least the smallest understanding of what God is.  And that can take a lifetime.

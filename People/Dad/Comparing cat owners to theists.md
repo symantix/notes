@@ -1,0 +1,5 @@
+Comparing cat owners to theists.
+
+Many would say that cats don’t love you, that you are simply a source of basic needs.  If you ask these people if they believe that because there is no evidence that cats can love, or because there is actual evidence that they don’t love, they will say the former.
+
+Theists, like cat owners, observe the object of their affection, and they all agree that they see evidence of what they believe.  For the more rational theists, this evidence is not a book, but the world around them.  Atheists do not agree that any of it is evidence of an intelligent mind at work.  Just as the cat owner sees subtle signs in the eyes of their cat, in their daily behavior, that to them is clear evidence of love and effection, so the theist looks at the sky and sees clear evidence of thought and care by something larger than ourselves.  Are we 100% certain?  No.  But we will still smile and enjoy the affection of our cat every day.

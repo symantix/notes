@@ -1,0 +1,5 @@
+Insecurity keeps me from being my best self.  And people deserve to have my best self when they’re in my presence.  So regardless of what I’m insecure about, I need to find a way to move past it as soon as possible. 
+
+Maybe I’m feeling guilty about something.  Maybe I think someone doesn’t like me.  Wounded friend or bitter enemy, they both deserve me in my most elevated state; my kindest self, my most attentive, thoughtful, and understanding self.  Why should my inner conflicts be allowed to deprive the world of yet another oasis of peace?
+
+#AAA

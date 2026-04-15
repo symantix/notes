@@ -1,0 +1,5 @@
+I will say this.  It would  benefit the entire LGBTQIABLAHBLAH debate, if everyone understood how the trans community distinguishes between gender and sex.  The distinction is a fantasy, I’ll grant you, but so is much of religion.  And they are mentally ill, and so is much of religion.  I’m glad that our group treats the mentally ill trans people with the same respect that we treat the mentally ill religious people.
+
+It’s sad that many trans people don’t even understand how the term gender was co-opted.  There are at least a few who do, and those people are the key to treating the illness of the entire group.
+
+Dad:  Well, since we all are mentally suffering from some form of ism, perhaps the best pathway forward is by demonstrating a great deal of compassion and honesty. It’s tough to get out of the ditch that you were born in, or fell in.

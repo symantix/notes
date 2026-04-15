@@ -1,0 +1,1 @@
+It may be true that I am against men in women’s bathrooms and sports.  But I am as much an ally to LGBTQ people as I am to any other group that simply wants to exist.  Existence is an inalienable right.  Co-existence is society, the collective picture of humanity, a living, breathing body of God.  Society is not perfect, but it is always negotiable.

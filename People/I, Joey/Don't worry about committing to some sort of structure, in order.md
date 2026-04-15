@@ -1,0 +1,1 @@
+Don't worry about committing to some sort of structure, in order to turn these notes into a book. Keep writing this story like you were simply telling a friend a story at a bar, week after week after week.  Worry about the order when you already have more than enough notes to make a book.

@@ -1,0 +1,1 @@
+They have a think tank, where several of them can get into a big tank of fluid, and share their thoughts.

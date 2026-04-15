@@ -1,0 +1,1 @@
+First or second test flight, Tiber crash lands in the woods.  He spends a day becoming a monk , he thinks he’s lost forever, and meets some strange children, whom he spends time telling about their project.  This is how another team of space racers are born.  After Tiber leaves, we later find out that they’ve started building their own ship, because of Tiber’s loose mouth.

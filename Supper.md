@@ -1,0 +1,22 @@
+Supper
+
+- Spaghetti 
+- Chow Mai Phun 
+- Sushi
+- Wings
+- Cream cheese chicken (with or w/o noodles)
+- Pizza
+- Hamburgers 
+- Brats 
+- Breakfast for dinner
+- Chicken and dumplings
+- Sausage okra & tomatoes
+- Chicken w brown noodles & spinach
+- Chili
+- Chili cheese nachos
+- Ramen
+- Macaroni & cheese
+- Lasagna
+- Enchiladas
+- Chicken noodle soup, regular or thick dumpling-style noodles
+- chicken lettuce wraps

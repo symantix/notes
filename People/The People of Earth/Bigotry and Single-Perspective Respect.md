@@ -1,0 +1,1 @@
+There are at least two sides to every story.  However, I don’t care to hear any perspective from those who are so bigoted, that they can only respect their own viewpoint.

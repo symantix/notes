@@ -1,0 +1,1 @@
+Start drawing pictures of your Sunday agenda, like visual notes and sketches. Spend enough time to make it look nice. Perhaps it will help you speak more fluidly.

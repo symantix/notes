@@ -1,0 +1,1 @@
+Do you suppose that you will ever find someone that you can live with, whom you can get along with and sustain a long-term relationship with, without ever manipulating them emotionally when you get angry?

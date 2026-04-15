@@ -1,0 +1,1 @@
+My kids may break and lose everything. They may throw away all the silverware and rechargeable batteries. They may be the worst roommates in the universe. But they are here.  And one day they won't be.  So why build a relationship based on punishment?  Why make them yearn for freedom?

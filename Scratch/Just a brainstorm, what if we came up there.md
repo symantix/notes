@@ -1,0 +1,1 @@
+What if we came up there?  We could all make our own arrangements and meet for the day.  Maybe John and I could share a place big enough to host a day there, day at your house, maybe a day exploring the area.  Just a thought, no pressure, think it over.

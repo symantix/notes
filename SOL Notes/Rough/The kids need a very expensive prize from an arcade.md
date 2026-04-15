@@ -1,0 +1,1 @@
+The kids need a very expensive prize from an arcade.  It's some sort of weird toy, maybe with some sort of special motor or RC system.  It costs 800K tickets.  Sheila takes care of it with her secret master arcade skills.

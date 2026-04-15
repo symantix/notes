@@ -1,0 +1,3 @@
+- manage devs
+- thoughts around team efficiency
+- Assign a reviewer to your own tasks

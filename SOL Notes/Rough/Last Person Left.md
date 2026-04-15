@@ -1,0 +1,1 @@
+We begin with Tiq writing a letter to her mother.  She is now the last person left on earth, and she’s trying to figure out a way off the planet.

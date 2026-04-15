@@ -1,0 +1,5 @@
+* Setup a blog, write occasional articles.  They can be anything; a review of the comic, a review of one scene, a poem proclaiming love for the comic, anything.  Be sure the articles contain keywords relevant to the comic.
+* Review Episode 2
+  * Look carefully at where the word balloons are pointing.  It will be much more obvious in the final.  Don't hesitate to ask me, if it isn't clear.  The word balloons won't be grey in the final.
+  * I'm interested in your honest opinion, as always.  I'm not showing this to you so that I can get compliments.  This phase is about hearing thoughts from others that I might not have, for consideration, while there's opportunity to make changes.  I'm interested in suggested improvements to the script.  I want to know if you can't figure out what's going on.
+  * Although most of the pencil work is complete, the inking stage hasn't even begun.  So everything looks rough, and will be way more refined in the final.

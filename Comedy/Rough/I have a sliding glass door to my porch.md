@@ -1,0 +1,3 @@
+I have a sliding glass door to my porch
+
+It’s all gunked up and hard to slide.  It doesn’t take all your might or anything, but it’s not smoothe either.  The other night my son was struggling to get it closed.  It took him several big heaves and left winded.  As he was walking away, I swung the sliding door open and said “great job with the door son”, to which he responded, “I don’t need your approval!”

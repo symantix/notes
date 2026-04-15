@@ -1,0 +1,1 @@
+Circular thinking is unavoidable until you start aiming upward.

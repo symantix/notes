@@ -1,0 +1,1 @@
+Don’t misunderstand me.  I’m not a Trump fan.  But nor am I democrat.  So just a question, as a thought exercise.  And I wonder if you will believe me when I tell you I’m not angry, and that I love you.  But... should I be as tolerant of your political meditations, as you once were of my religious fascinations?

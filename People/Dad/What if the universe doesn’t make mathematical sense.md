@@ -1,0 +1,1 @@
+What if the universe doesn’t make mathematical sense?  What if there are contradictions that simply are, like an inconsistency in a story?  How can we be sure that everything is reconcilable?

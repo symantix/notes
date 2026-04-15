@@ -1,0 +1,1 @@
+The big problem with AI, is that it removes the incentive for people to publish anything online.  After all, I have no desire to add further education to a robot that is getting paid to steal my viewership.  So when people stop publishing their labored thoughts on public pages, where will AI get its latest content?  It’s like a snake eating its own tail.

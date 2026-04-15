@@ -1,0 +1,1 @@
+It is not my job to lift myself up in this world.

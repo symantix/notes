@@ -1,0 +1,1 @@
+I can't even begin to pay my taxes.  I might be able to get monthly payments, but even then, I don't know how I will lay next years taxes.  And even if I never pay taxes, I don't know how to get my refrigerator replaced, or fence repaired, or kitchen sink unclogged, or medical insurance paid.

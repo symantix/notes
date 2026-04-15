@@ -1,0 +1,3 @@
+I don’t hate my job.  Can I ever stop saying that I do?  There’s a difference between being frustrated with something, and hating it.  Jobs are fluid, to some extent, they can be what you make them.  Jobs are tools, a means to an end.  Some tools are shitty, but still better than nothing.  We don’t hate the tool we have, we just wish we had a better one.
+
+I have a good job.  I like it, it just stopped being shiny and new.  It was really getting in the way of my life goals for a long time there, but I took care of most of that, and it’s working well again.  But I want a better one.  I had a better one before this one, but I gave it up "because freelancing is scawy” [baby voice].  That was a mistake.  Life is terrifying, time to get over it.

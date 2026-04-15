@@ -1,0 +1,1 @@
+Two snails are racing toward a piece of food, fight verbally over who gets it.  Their movements are extremely slow, but their words are normal pace.  One snail threatens the other 20 times or so, as the other begins to move their head toward the food and open their mouth, one millimeter at a time.

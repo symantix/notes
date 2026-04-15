@@ -1,0 +1,1 @@
+I tried to bury the jerk deep down inside of me, but in doing so, I discovered that I was also burying the leader.
