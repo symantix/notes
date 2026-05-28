@@ -1,0 +1,9 @@
+When you were a child, at some point, for your own reasons, you decided that I was the bad guy, and tended to treat me accordingly.  It didn't really matter what I had to say, I was frequently stopping you from doing what you wanted, and that meant bad man.
+
+When you grew up, you moved beyond that.  You never really apologized for the way you treated me, as children rarely do.  But at some point it seemed like you just clicked, and your behavior toward me seemed to demonstrate that you had grown up and finally been able to see our relationship in a new light.  You turned to me one day in the kitchen, out of nowhere, and said, "you know, Dad, you're an amazing soul".  It took me completely off guard, left me with few words to offer as a response, and generally made my day.  I've never forgotten it.
+
+This week, you began to fear that you might not get what you wanted.  You responded by trying to frame the dog bite as my fault, enough that I should get over myself and what had happened to me, and forgive the dog who tore my lip in half.  You threatened me, that you were going to tear our relationship to pieces if I didn't do what you wanted.  You then told me that you have no memory of ever calling me an amazing soul.  It seemed to mean nothing to you.
+
+How is this different from when you were a child?  And should my response be any different?  Is such behavior worthy of getting your way?  Or do you just not care if it's worthy, and I just better give it to you if I know what's good for me?
+
+When you feel yourself losing control, deliberately hurting others seems to be the main method you use to regain it.

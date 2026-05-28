@@ -1,0 +1,1 @@
+If you become openly offended in a comedy venue, you’ve failed to understand the true purpose of the comedy stage.  And God help you if you interrupt the comic, especially if they’re funny.  Half of the room will come at you because they agree with the comic, and the other half will come at you because they believe in comedy.

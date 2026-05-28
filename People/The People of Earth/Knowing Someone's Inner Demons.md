@@ -1,0 +1,1 @@
+You have to know a person intimately to be able to see their demons. This is why exorcisms are possible, but almost always fake.
