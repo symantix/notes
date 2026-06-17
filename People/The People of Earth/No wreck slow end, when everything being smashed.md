@@ -1,0 +1,1 @@
+No wreck is slow at the end, when everything is being smashed to pieces.

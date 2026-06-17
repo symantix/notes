@@ -1,0 +1,1 @@
+When the mind is out of line with the body, some will tell you to change your body. Others will tell you to change your mind. Yet others will tell you to learn to accept the misalignment as part of who you are.

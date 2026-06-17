@@ -1,0 +1,1 @@
+Think for yourself and aim for truth, even if it costs you every relationship you have.  No tribe is worth suffocation by dogma.

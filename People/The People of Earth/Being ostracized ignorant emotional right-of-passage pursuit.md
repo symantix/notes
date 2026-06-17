@@ -1,0 +1,1 @@
+Being ostracized by the ignorant and emotional is a right-of-passage in the pursuit of truth.  Accept the compliment.

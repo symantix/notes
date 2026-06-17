@@ -1,1 +1,1 @@
-Be sure that you’re not disparaging those who help and bless you, not with your mouth, especially not in your heart, nor even in the quiet privacy of your own mind.
+Do not disparage those who help and bless you, not with your mouth, especially not in your heart, nor even in the quiet privacy of your own mind.

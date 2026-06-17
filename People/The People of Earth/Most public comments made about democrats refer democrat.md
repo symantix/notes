@@ -1,0 +1,3 @@
+Most public comments made about democrats refer to democrat leadership, not all the good laypeople who claim that label.  However, when a layperson indicates to me that they believe these comments are about all people who claim the democrat label, they do prove one thing:  They are incapable of listening honestly, or interpreting antecedents objectively.  School has failed them.
+
+But please, get the democrats away from the levers of government.

@@ -1,0 +1,1 @@
+I don’t like being disrespectful to anyone, not even in my mind.  But if I believe something is true, I will think it, I may say it, and there is nothing disrespectful about that.

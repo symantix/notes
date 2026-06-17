@@ -1,0 +1,3 @@
+Someone once suggested to me that we needed a department of government to keep anything untrue off of public media outlets.  I asked them who would run that department?  Who would determine what was true?  And would they be comfortable with the opposing party running that department?  They ended the conversation abruptly by implying that I wasn’t worth discussing politics with.  It was very telling.
+
+The best government policies come from considering all perspectives, not from virtue signaling.  This is basic, time-tested game theory.
