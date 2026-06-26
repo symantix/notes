@@ -1,0 +1,3 @@
+I remember when we met.  I had been doing comedy for a few weeks, and for some reason, I was experiencing an unexpected amount of popularity and admiration.  It felt unearned, and I really didn't know what to do with the energy.  I had seen your comedy, and I had seen you sitting by yourself a couple of times, like a lonely kid without a friend.  Most people didn't seem to understand your creativity.  I realized I was being sucked into a clique.  I enjoy breaking cliques, but that was the least of the reasons why I sat by you instead of them that day.  I wanted to break up their echo chamber, but I also wanted to get to know you.
+
+(lead to the last time I ever saw him in person)
